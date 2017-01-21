@@ -66,12 +66,21 @@ At this point, our language has subtly changed from using temptation to describe
  - it was a series of lessons that took forty years to teach!
 
 We now jump from the wilderness episode to another event. The relationship between the God of Abraham and Abraham's descendants at best is an almighty wrestling. God is wrestling to win their hearts whilst the children of Israel are hopelessly disjointed in their efforts to act right. 
+
 Our next topic focuses on further tests by the LORD God for the congregation of the wilderness. The link between the wilderness test and the commands to abstain from false prophets will become clear by the end of this study.
 
-4. Why does God allow false prophets/false doctrines? (Deu. 13:1-3)
+
+
+4. Why does God allow false prophets and false doctrines? (Deu. 13:1-3)
 >“**1** If there arises among you a prophet or a dreamer of dreams, and he gives you a sign or a wonder,"
 **2** and the sign or the wonder comes to pass, of which he spoke to you, saying, “Let us go after other gods’—which you have not known—‘and let us serve them,’
 **3** you shall not listen to the words of that prophet or that dreamer of dreams, for the Lord your God is testing you to know whether you love the Lord your God with all your heart and with all your soul. (Deuteronomy 13:1-3 NKJV) 
+
+ - God
+
+ - false prophet
+   - a carrier of divine messages and warnings which are not from the LORD God
+ 
 
 5. Why did God eventually allow some heathen nations to stay in the promised land? (Jdg. 2:20-22)
 > "**20** Then the anger of the Lord was hot against Israel; and He said, “Because this nation has transgressed My covenant which I commanded their fathers, and has not heeded My voice, **21** I also will no longer drive out before them any of the nations which Joshua left when he died, **22** so that through them I may test Israel, whether they will keep the ways of the Lord, to walk in them as their fathers kept them, or not.” (Judges 2:20-22 NKJV) 
