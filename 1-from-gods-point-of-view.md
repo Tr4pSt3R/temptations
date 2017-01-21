@@ -1,12 +1,17 @@
 Book: Studies for Christian Growth - Solid Foundations
 
-Study 5: Temptation
+**Study 5**: Temptation
 
 **Topic**: The Purpose of Temptation
+
 **Date**: Sun. 15th Jan. 2017 
+
 **Teacher**: Brother Jones Agyemang
+
 **Support**: Minister Philip Amponsah
+
 **Class**: Judah
+
 **Contents**:
   - Learning objectives
   - The Purpose of Temptation - From God’s Point of View
