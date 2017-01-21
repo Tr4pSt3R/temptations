@@ -47,10 +47,14 @@ At this point, our language has subtly changed from using temptation to describe
 2. Why did God test the children of Israel?
   - “that I may test them *whether they will walk in My law or not*.” (Exodus 16:4c NKJV)
     - walking in God's law indicates that they love Him
+      - "if you walk in my commandments
     - refusing to walk in God's law shows that they are contrary to Him
 
 3. Why did God test His people for forty years in the wilderness (Deu. 8:2)?
   > "And you shall remember that the LORD your God led you all the way these forty years in the wilderness, **_to humble you_** and test you **_to know what was in your heart_**, whether you **_would keep His commandments or not_**." (Deuteronomy 8:2 NKJV)
+
+We now jump from the wilderness episode to another event. The relationship between the God of Abraham and Abraham's descendants at best is an almighty wrestling. God is wrestling to win their hearts whilst the children of Israel are hopelessly disjointed in their efforts to act right. 
+Our next topic focuses on further tests by the LORD God
 
 4. Why does God allow false prophets/false doctrines? (Deu. 13:1-3)
 
