@@ -1,16 +1,14 @@
-# temptation_syllabus {#temptation-syllabus}
-
 # Solid Foundations {# Solid Foundations }
 
 Studies for Christian Growth
 
-Study 5: Temptation
+Study #5: Temptation
 
 # Instructor Information {#instructor-information}
 
-| Instructor | Email | Family Life Christian Centre |
+| Instructor | Email | Venue |
 | -| - | - |
-| Jones Agyemang | jones@flccuk.com | House of Favour |
+| Jones Agyemang | jones@flccuk.com | House of Favour, SE1 5AG |
 
 ## Description {#description}
 
