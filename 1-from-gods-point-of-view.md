@@ -11,6 +11,7 @@ Contents:
   - Learning objectives
   - The Purpose of Temptation - From God’s Point of View
     - Introduction
+    - Define Temptation
 
 
                   
@@ -54,9 +55,10 @@ The Lord tests the righteous
    - The Lord also allows us to be tested.
    - When we speak of God testing us a natural reaction of fear is evoked (Exo. 20:18-20) but, God’s plans is emphatically positive (Jer. 29:11)                                                                                                                                                                                                                         
 
-The Test Of Faith and Obedience
-———————————————
-Statement A: God puts us in situations which allows Him and us and others to see what is in our hearts.
+## The Test Of Faith and Obedience
+
+### Introduction
+God puts us in situations which allows Him and us and others to see what is in our hearts.
 
 Faith without works is dead. In fact it cannot be called faith. As a new creation in Christ God will test your faith, love and obedience. God is faithful but are we faithful? How can we trust God in all circumstances? How can we demonstrate our love towards God even in the face of trials?
 
