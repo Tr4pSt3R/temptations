@@ -16,6 +16,9 @@ Book: Studies for Christian Growth - Solid Foundations
   - Learning objectives
   - The Children of Israel Tested
     - Introduction
+    - Summary
+    - Key Learning
+  - Prayers
 
 Contents:
   - Learning objectives
@@ -41,22 +44,22 @@ At this point, our language has subtly changed from using temptation to describe
     - Whereas, Egypt had to stored for themselves seven years’ worth of grain in the time of great worldwide famine the children of Israel had to simply trust Jehovah Jireh for provision
     - they departed from Egypt with gold and silver in large quantities, but not enough food or water to sustain them and their animals
 
-b. Why did God test the children of Israel?
+2. Why did God test the children of Israel?
   - “that I may test them *whether they will walk in My law or not*.” (Exodus 16:4c NKJV)
     - walking in God's law indicates that they love Him
     - refusing to walk in God's law shows that they are contrary to Him
 
-c. Why did God test His people for forty years in the wilderness (Deu. 8:2)?
-  — to know what was in your heart
+3. Why did God test His people for forty years in the wilderness (Deu. 8:2)?
+  > "And you shall remember that the LORD your God led you all the way these forty years in the wilderness, **_to humble you_** and test you **_to know what was in your heart_**, whether you **_would keep His commandments or not_**." (Deuteronomy 8:2 NKJV)
 
-d. Why does God allow false prophets/false doctrines? (Deu. 13:1-3)
+4. Why does God allow false prophets/false doctrines? (Deu. 13:1-3)
 
-e. Why did God eventually allow some heathen nations to stay in the promised land? (Jdg. 2:20-22)
+5. Why did God eventually allow some heathen nations to stay in the promised land? (Jdg. 2:20-22)
 
 ## Summary
 1. Jehovah Jireh means the God who provides
 
-## Key Learnings
+## Key Learning
 1. God will exercise various ways of testing His people as a collective.
 
 ## Prayer - Providence - Tues. 30th August 2016
