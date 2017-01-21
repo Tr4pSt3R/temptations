@@ -44,4 +44,4 @@ At the end of the course, it is expected of the saints to have:
 | 9 | Examples of Temptation – _Temptation of Abraham_ | **James 1:12** |  |Sun. 12th Mar. 2017|
 | 10 | Examples of Temptation – _Temptation of Believers_ | **James 1:12** |  |Sun. 19th Mar. 2017 |
 | 11 | Coping with Temptation | **James 1:12** |  |Sun. 26th Mar. 2017 |
-| 12 | Temptations - Course Recap | various | 
+| 12 | Temptations - Course Recap | various | - | Sun. 2nd Apr. 2017 |
