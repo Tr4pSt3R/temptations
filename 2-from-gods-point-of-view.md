@@ -76,7 +76,7 @@ Our next topic focuses on further tests by the LORD God for the congregation of 
 **2** and the sign or the wonder comes to pass, of which he spoke to you, saying, “Let us go after other gods’—which you have not known—‘and let us serve them,’
 **3** you shall not listen to the words of that prophet or that dreamer of dreams, for the Lord your God is testing you to know whether you love the Lord your God with all your heart and with all your soul. (Deuteronomy 13:1-3 NKJV) 
 
- - God
+ - the LORD God is testing obedience to the first commandment - "_You shall have no other gods before Me._" (Exodus 20:3 NKJV)
 
  - false prophet
    - a carrier of divine messages and warnings which are not from the LORD God
