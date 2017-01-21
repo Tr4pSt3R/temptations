@@ -1,8 +1,6 @@
 # Summary
 
 * [Introductory Page](README.md)
-* [General Information](general_information/README.md)
-* [Further Reading:](further_reading/README.md)
-    * [The Purpose of Temptation](further_reading/the_purpose_of_temptation.md)
-* [Course Schedule](course_schedule.md)
+* [The Purpose of Temptation - From God's Point of View](the-purpose-of-temptation---from-gods-point-of-view-1.md)
+    * [1 From God's Point of View](1-from-gods-point-of-view.md)
 
