@@ -39,8 +39,12 @@ At this point, our language has subtly changed from using temptation to describe
 
 1. What was the simple test did God put the children of Israel through?
   - trust of God's providence
-  - **Providence** means God's continual care over His creation. God uses tests to teach us to trust Him in everything. He started with the most pressing concerns which was _physical nourishment_. God doesn't tempt us, but tests us through practical concerns that affect our lives. 
-  - God was not testing children
+  - Timeline
+    - Moses is visited by God at the burning bush (Exo. 3:1-22)
+    - God discusses His rescue mission (Exo. 3:8) and His ultimate plan to pluck the children of Israel(descendants of Jacob) from Egypt to _a land flowing with milk and honey_(Exo 3:8).
+    
+  - **Providence** means _God's continual care over His creation_. God uses tests to teach us to trust Him in everything. He started with the most pressing concerns, which was _physical nourishment_. God doesn't tempt us, but tests us through practical concerns that affect our lives. 
+  - Egypt's plenty...
     - Whereas, Egypt had to stored for themselves seven years’ worth of grain in the time of great worldwide famine the children of Israel had to simply trust Jehovah Jireh for provision
     - they departed from Egypt with gold and silver in large quantities, but not enough food or water to sustain them and their animals
 
@@ -54,11 +58,16 @@ At this point, our language has subtly changed from using temptation to describe
   > "And you shall remember that the LORD your God led you all the way these forty years in the wilderness, **_to humble you_** and test you **_to know what was in your heart_**, whether you **_would keep His commandments or not_**." (Deuteronomy 8:2 NKJV)
 
 We now jump from the wilderness episode to another event. The relationship between the God of Abraham and Abraham's descendants at best is an almighty wrestling. God is wrestling to win their hearts whilst the children of Israel are hopelessly disjointed in their efforts to act right. 
-Our next topic focuses on further tests by the LORD God
+Our next topic focuses on further tests by the LORD God for the congregation of the wilderness. The link between the wilderness test and the commands to abstain from false prophets will become clear by the end of this study.
 
 4. Why does God allow false prophets/false doctrines? (Deu. 13:1-3)
+>“**1** If there arises among you a prophet or a dreamer of dreams, and he gives you a sign or a wonder,"
+**2** and the sign or the wonder comes to pass, of which he spoke to you, saying, “Let us go after other gods’—which you have not known—‘and let us serve them,’
+**3** you shall not listen to the words of that prophet or that dreamer of dreams, for the Lord your God is testing you to know whether you love the Lord your God with all your heart and with all your soul. (Deuteronomy 13:1-3 NKJV) 
 
 5. Why did God eventually allow some heathen nations to stay in the promised land? (Jdg. 2:20-22)
+> "**20** Then the anger of the Lord was hot against Israel; and He said, “Because this nation has transgressed My covenant which I commanded their fathers, and has not heeded My voice, **21** I also will no longer drive out before them any of the nations which Joshua left when he died, **22** so that through them I may test Israel, whether they will keep the ways of the Lord, to walk in them as their fathers kept them, or not.” (Judges 2:20-22 NKJV) 
+
 
 ## Summary
 1. Jehovah Jireh means the God who provides
@@ -66,9 +75,9 @@ Our next topic focuses on further tests by the LORD God
 ## Key Learning
 1. God will exercise various ways of testing His people as a collective.
 
-## Prayer - Providence - Tues. 30th August 2016
+## Prayer - Providence - Sun. 22nd Jan. 2017
 1. Patience under affliction
-2. Trust Him for provision
+2. Jehovah Jireh, You are the source of all our provision. 
 
 Notable Themes:
   - Children of Israel 
