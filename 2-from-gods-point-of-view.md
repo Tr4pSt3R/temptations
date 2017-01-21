@@ -42,10 +42,16 @@ At this point, our language has subtly changed from using temptation to describe
   - Timeline
     - Moses is visited by God at the burning bush (Exo. 3:1-22)
     - God discusses His rescue mission (Exo. 3:8) and His ultimate plan to pluck the children of Israel(descendants of Jacob) from Egypt to _a land flowing with milk and honey_(Exo 3:8).
-    
+    - The LORD God Almighty, El Shaddai, showed His power by raining down ten plagues upon Egypt which weakened Pharaoh's resistance.
+    - God successfully liberates the children of Israel and sparks a term now used in popular phrase to describe the movement of a great number of people - the Exodus!
+    - God made a way through the wilderness when their backs were against the wall and there was no way out.
+    - After successfully crossing the Red Sea the wilderness journey now truly begins.
+    - Bitter waters were made sweet at Marah (Exo. 15:22-25)
+
+
   - **Providence** means _God's continual care over His creation_. God uses tests to teach us to trust Him in everything. He started with the most pressing concerns, which was _physical nourishment_. God doesn't tempt us, but tests us through practical concerns that affect our lives. 
   - Egypt's plenty...
-    - Whereas, Egypt had to stored for themselves seven years’ worth of grain in the time of great worldwide famine the children of Israel had to simply trust Jehovah Jireh for provision
+    - Whereas, Egypt had stored for themselves seven years’ worth of grain in the time of great worldwide famine the children of Israel had to simply trust Jehovah Jireh for provision.
     - they departed from Egypt with gold and silver in large quantities, but not enough food or water to sustain them and their animals
 
 2. Why did God test the children of Israel?
@@ -54,8 +60,10 @@ At this point, our language has subtly changed from using temptation to describe
       - "if you walk in my commandments
     - refusing to walk in God's law shows that they are contrary to Him
 
-3. Why did God test His people for forty years in the wilderness (Deu. 8:2)?
+3. Why did God test His people for forty years in the wilderness?
   > "And you shall remember that the LORD your God led you all the way these forty years in the wilderness, **_to humble you_** and test you **_to know what was in your heart_**, whether you **_would keep His commandments or not_**." (Deuteronomy 8:2 NKJV)
+
+ - it was a series of lessons that took forty years to teach!
 
 We now jump from the wilderness episode to another event. The relationship between the God of Abraham and Abraham's descendants at best is an almighty wrestling. God is wrestling to win their hearts whilst the children of Israel are hopelessly disjointed in their efforts to act right. 
 Our next topic focuses on further tests by the LORD God for the congregation of the wilderness. The link between the wilderness test and the commands to abstain from false prophets will become clear by the end of this study.
