@@ -58,31 +58,38 @@ The Lord tests the righteous
 ## The Test Of Faith and Obedience
 
 ### Introduction
-God puts us in situations which allows Him and us and others to see what is in our hearts.
+God puts us in situations which allows Him, ourselves and others to see what is in our hearts. 
 
-Faith without works is dead. In fact it cannot be called faith. As a new creation in Christ God will test your faith, love and obedience. God is faithful but are we faithful? How can we trust God in all circumstances? How can we demonstrate our love towards God even in the face of trials?
+Faith without works is dead. In fact it cannot be called faith. As a new creation in Christ God will test our faith, love, obedience and reverential fear of Him. God is always faithful, but we are not always faithful. This is our problem.
+>
 
-Faith can be found in the heart (Rom. 10:8, 9).
-  - desire and faith dwells in the heart
+How can we trust God in all circumstances? How can we demonstrate our love towards God even in the face of trials?
 
-Situations:
-  - can be brief in duration
-  - can be limited to a certain date
-  - can be protracted and without a defined end 
+### Abraham’s Faith Confirmed (Gen. 22:1-18)
 
-Examples of God’s Testing:
-  i. Abraham’s faith confirmed (Gen. 22:1-18)
+#### Questions
+1.  What was the test that Abraham’s covenant God put him through?
+> the Patriarch Abraham was put through a test of faith
 
-Example 1: Abraham’s Faith Confirmed
-a. What was the test that Abraham’s covenant God put him through?
-b. What was Hashem’s reason for doing it?
-  — “for now I know that you fear God,” Gen. 22:12
-c. What was the wonderful result for the patriarch Abraham?
-   — blessing I will bless you
-   — multiplying I will multiply your descendants as the stars of the heaven and the sand which is on the seashore
-   — and your descendants shall possess the gates of their enemies
-   — in your seed all the nations of the earth shall be blessed
+2. What was Hashem’s reason for doing it?
+> “_for now I know that **you fear God**,_” Gen. 22:12
 
+3. What was the wonderful result for the patriarch Abraham?
+   - Blessings
+     > "blessings I will bless you," (Genesis 22:17a NKJV)
+   
+   - Eternal generation
+     > "multiplying I will multiply your descendants as the stars of the heaven and the sand which is on the seashore." (Genesis 22:17b NKJV)
+   
+   - Triumphant Descendants
+     > "and your descendants shall possess the gates of their enemies." (Genesis 22:17c NKJV)
+   
+   - The Patriarch of the Messiah
+     > "in your seed all the nations of the earth shall be blessed." (Genesis 22:18a NKJV)
+     
+#### Key Learning
+1. The key to succeeding is from hearing the voice of God for yourself.
+          
 NOTES: 
   - God’s demand that Abraham offer Isaac is unlike anything in the ancient world
   - Abraham would not have considered this command of God commonplace
