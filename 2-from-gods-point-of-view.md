@@ -29,6 +29,8 @@ Learning Objectives
 ## Introduction
 God puts us in situations which allows Him, ourselves and others to see what is in our hearts. We can be tested individually as seen in the example of the patriarch Abraham. Nonetheless, the Lord GOD also tests a people-group to establish their corporate faith in Him.
 
+At this point, our language has subtly changed from using temptation to describe God's dealings with us to using the word test. This should remove any confusion between the two although great efforts have been made to distinguish between the two.
+
 >“Then the Lord said to Moses, “Behold, I will rain bread from heaven for you. And the people shall go out and _gather a certain quota every day_, that I may test them, whether they will walk in My law or not.” (Exodus 16:4 NKJV)
 
 
@@ -44,7 +46,7 @@ b. Why did God test the children of Israel?
     - walking in God's law indicates that they love Him
     - refusing to walk in God's law shows that they are contrary to Him
 
-c. Why did God prove/test His people for forty years in the wilderness (Deu. 8:2)?
+c. Why did God test His people for forty years in the wilderness (Deu. 8:2)?
   — to know what was in your heart
 
 d. Why does God allow false prophets/false doctrines? (Deu. 13:1-3)
