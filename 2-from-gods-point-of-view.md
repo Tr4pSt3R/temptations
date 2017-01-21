@@ -40,7 +40,9 @@ God puts us in situations which allows Him, ourselves and others to see what is 
     - they departed from Egypt with gold and silver in large quantities, but not enough food or water to sustain them and their animals
 
 b. Why did God test the children of Israel?
-  — “whether they will walk in My law or not.”
+  - “that I may test them *whether they will walk in My law or not*.” (Exodus 16:4c NKJV)
+    - walking in God's law indicates that they love Him
+    - refusing to walk in God's law shows that they are contrary to Him
 
 c. Why did God prove/test His people for forty years in the wilderness (Deu. 8:2)?
   — to know what was in your heart
