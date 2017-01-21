@@ -2,7 +2,7 @@ Book: Studies for Christian Growth - Solid Foundations
 
 **Study 5**: Temptation
 
-**Topic**: The Purpose of Temptation
+**Topic**: The Purpose of Temptation - Abraham's Faith Confirmed
 
 **Date**: Sun. 15th Jan. 2017 
 
@@ -18,12 +18,10 @@ Book: Studies for Christian Growth - Solid Foundations
     - Introduction
     - Define Temptation
 
-
-                  
 ### Learning Objectives
   - introduction to Study 5: Temptation
   - establish that God doesn’t tempt but tests!
-
+  - define temptation and how it differs from testing
 
 # The Purpose of Temptation - From God’s Point of View
 ## Introduction
