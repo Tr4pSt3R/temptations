@@ -2,12 +2,12 @@ Book: Studies for Christian Growth - Solid Foundations
 
 Study 5: Temptation
 
-Topic: The Purpose of Temptation
-Date: Sun. 15th Jan. 2017 
-Teacher: Brother Jones Agyemang
-Support: Minister Philip Amponsah
-Class: Judah
-Contents:
+**Topic**: The Purpose of Temptation
+**Date**: Sun. 15th Jan. 2017 
+**Teacher**: Brother Jones Agyemang
+**Support**: Minister Philip Amponsah
+**Class**: Judah
+**Contents**:
   - Learning objectives
   - The Purpose of Temptation - From God’s Point of View
     - Introduction
@@ -61,7 +61,6 @@ The Lord tests the righteous
 God puts us in situations which allows Him, ourselves and others to see what is in our hearts. 
 
 Faith without works is dead. In fact it cannot be called faith. As a new creation in Christ God will test our faith, love, obedience and reverential fear of Him. God is always faithful, but we are not always faithful. This is our problem.
->
 
 How can we trust God in all circumstances? How can we demonstrate our love towards God even in the face of trials?
 
@@ -89,15 +88,3 @@ How can we trust God in all circumstances? How can we demonstrate our love towar
      
 #### Key Learning
 1. The key to succeeding is from hearing the voice of God for yourself.
-          
-NOTES: 
-  - God’s demand that Abraham offer Isaac is unlike anything in the ancient world
-  - Abraham would not have considered this command of God commonplace
-  - no offence is identified as a reason for the sacrifice (I would have protested it as unfair!)
-
-## Questions
-
-1. What happens when a believer does not react well to a temptation i.e. are overcome by a temptation?
-  — there’s a rise of remorseful emotion (2 Cor. 7:9)
-  — over-taken by godly sorrow (2 Cor. 7:9)
-  — repentance from the LORD must be sought after
