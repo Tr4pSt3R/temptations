@@ -50,21 +50,22 @@ At this point, our language has subtly changed from using temptation to describe
 
 * **Providence** means _God's continual care over His creation_. God uses tests to teach us to trust Him in everything. He started with the most pressing concerns, which was _physical nourishment_. God doesn't tempt us, but tests us through practical concerns that affect our lives. 
 * Egypt's plenty...
+
   * Whereas, Egypt had stored for themselves seven years’ worth of grain in the time of great worldwide famine the children of Israel had to simply trust Jehovah Jireh for provision.
   * they departed from Egypt with gold and silver in large quantities, but not enough food or water to sustain them and their animals
 
-1. Why did God test the children of Israel?
+* Why did God test the children of Israel?
 
-   * “that I may test them _whether they will walk in My law or not_.” \(Exodus 16:4c NKJV\)
-     * walking in God's law indicates that they love Him
-       * "if you walk in my commandments
-     * refusing to walk in God's law shows that they are contrary to Him
+  * “that I may test them _whether they will walk in My law or not_.” \(Exodus 16:4c NKJV\)
+    * walking in God's law indicates that they love Him
+      * "if you walk in my commandments
+    * refusing to walk in God's law shows that they are contrary to Him
 
-2. Why did God test His people for forty years in the wilderness?
+* Why did God test His people for forty years in the wilderness?
 
-   > "And you shall remember that the LORD your God led you all the way these forty years in the wilderness, _**to humble you**_ and test you _**to know what was in your heart**_, whether you _**would keep His commandments or not**_." \(Deuteronomy 8:2 NKJV\)
+  > "And you shall remember that the LORD your God led you all the way these forty years in the wilderness, _**to humble you**_ and test you _**to know what was in your heart**_, whether you _**would keep His commandments or not**_." \(Deuteronomy 8:2 NKJV\)
 
-   * it was a series of lessons that took forty years to teach!
+  * it was a series of lessons that took forty years to teach!
 
 We now jump from the wilderness episode to another event. The relationship between the God of Abraham and Abraham's descendants at best is an almighty wrestling. God is wrestling to win their hearts whilst the children of Israel are hopelessly disjointed in their efforts to act right.
 
@@ -82,7 +83,8 @@ Our next topic focuses on further tests by the LORD God for the congregation of 
 
    * a carrier of divine messages and warnings which are not from the LORD God
 
-1. Why did God eventually allow some heathen nations to stay in the promised land? \(Jdg. 2:20-22\)
+2. Why did God eventually allow some heathen nations to stay in the promised land? \(Jdg. 2:20-22\)
+
    > "**20** Then the anger of the Lord was hot against Israel; and He said, “Because this nation has transgressed My covenant which I commanded their fathers, and has not heeded My voice, **21** I also will no longer drive out before them any of the nations which Joshua left when he died, **22** so that through them I may test Israel, whether they will keep the ways of the Lord, to walk in them as their fathers kept them, or not.” \(Judges 2:20-22 NKJV\)
 
 ## Summary
