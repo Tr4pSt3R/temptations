@@ -19,13 +19,8 @@ Book: Studies for Christian Growth - Solid Foundations
     - Summary
     - Key Learning
   - Prayers
-
-Contents:
-  - Learning objectives
-  - The Children of Israel Tested
-    - Introduction
 	                  
-Learning Objectives
+# Learning Objectives
   - introduction to Study 5: Temptation
 
 # The Children of Israel Tested
@@ -48,7 +43,7 @@ At this point, our language has subtly changed from using temptation to describe
     - After successfully crossing the Red Sea the wilderness journey now truly begins.
     - Bitter waters were made sweet at Marah (Exo. 15:22-25)
 
-
+# Providence
   - **Providence** means _God's continual care over His creation_. God uses tests to teach us to trust Him in everything. He started with the most pressing concerns, which was _physical nourishment_. God doesn't tempt us, but tests us through practical concerns that affect our lives. 
   - Egypt's plenty...
     - Whereas, Egypt had stored for themselves seven years’ worth of grain in the time of great worldwide famine the children of Israel had to simply trust Jehovah Jireh for provision.
@@ -93,12 +88,10 @@ Our next topic focuses on further tests by the LORD God for the congregation of 
 1. God will exercise various ways of testing His people as a collective.
 
 ## Prayer - Providence - Sun. 22nd Jan. 2017
-1. Patience under affliction
+1. Holy Father, give us patience under affliction. 
 2. Jehovah Jireh, You are the source of all our provision. 
 
-Notable Themes:
-  - Children of Israel 
-
-NOTES:
-  - we know God through His dealings with us and our dealings with Him
-  - our hearts are liable a d
+## Notable Themes:
+  - Children of Israel
+  - Providential Care
+  - Providential Foresight
