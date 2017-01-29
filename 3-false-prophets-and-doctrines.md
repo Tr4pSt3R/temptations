@@ -10,6 +10,8 @@
 * Learning objectives
 * False Prophets and Doctrines
   * Introduction
+  * The Great Apostasy
+  * The Need for Discernment
   * Summary
   * Key Learning
 * Prayers
@@ -27,6 +29,12 @@
 ## Introduction
 Our study on the purpose of temptation from God's point of view has now taken a different course. A course which is rarely seen as a threat. These warnings were issued to the children of Israel but they are just as real to the Christians of Today.
 
+
+
+
+
+
+
 #### The Great Apostasy
 > "Now the Spirit expressly says that in latter times some will depart from the faith, giving heed to deceiving spirits and doctrines of demons, 2 speaking lies in hypocrisy, having their own conscience seared with a hot iron,"
 (1 Timothy 4:1, 2 NKJV)
@@ -39,6 +47,13 @@ Define:
  - gods
 
 Qu. 1) What makes a prophet false?
+ - a prophet who is **not** sent by God 
+  - ""
+ - a prophet who does **not** live according to the law of God
+  >"For both prophet and priest are profane; yes, in my house I have found their wickedness," says the LORD" (Jeremiah 23:11 NKJV)
+ - a prophet whose predictions do **not** come from God
+  >"And I have seen folly in the prophets of Samaria: _they prophesied by Baal_ and caused My people Israel to err." (Jeremiah 23:13 NKJV)
+ 
 Qu. 2) What makes a doctrine false?
  - designed to deny the truth of God's word (Gen. 3:4)
 
@@ -59,6 +74,10 @@ When we do not love God with all our heart and with all our soul there will be g
 ### The Need for Discernment
 God has given every Christian the gift of discernment. 
 The whole point of discernment is to be able to distinguish between what's true and what's false. This takes training. In the field of science, computers are trained by being exposed to thousands of scenarios that forces them to make a decision. In this way they learn to remember how to make better decisions next time and how to spot incorrect patterns.
+
+Although, the predictions made by the prophet may come to pass the gift of discernment can go beyond the surface and dig out the real source of the power at work. Discernment can decipher between good and evil.
+>"But solid food belongs to those who are of full age, that is, those who by reason of use have their senses _exercised to discern both good and evil_."
+(Hebrews 5:14 NKJV)
 
 ## Prayers - Falsities 
 1. Holy Father, let every situation we find ourselves in be a lesson to train our hearts and souls to love and obey You.
