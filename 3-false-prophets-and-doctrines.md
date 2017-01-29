@@ -19,11 +19,17 @@
  ii. explore why God allowed some heathen nations to stay in the Promised Land
 
 # False Prophets and Doctrines
-> **1** “If there arises among you a prophet or a dreamer of dreams, and he gives you a sign or a wonder, **2** and the sign or the wonder comes to pass, of which he spoke to you, saying, ‘_Let us go after other gods_’—which you have not known—‘and let us serve them,’ **3** you shall not listen to the words of that prophet or that dreamer of dreams, _for the Lord **your God is testing you** to know whether you love the Lord your God with all your heart and with all your soul._"
+> **1** “If there arises among you a prophet or a dreamer of dreams, and he gives you a sign or a wonder, 
+**2** and the sign or the wonder comes to pass, of which he spoke to you, saying, ‘_Let us go after other gods_’—which you have not known—‘and let us serve them,’ 
+**3** you shall not listen to the words of that prophet or that dreamer of dreams, _for the Lord **your God is testing you** to know whether you love the Lord your God with all your heart and with all your soul._"
 (Deuteronomy 13:1-3, NKJV)
 
 ## Introduction
-Our study on the purpose of temptation from God's point of view has now taken a different course. A course which is rarely seen as a threat. These warnings were issued to the children of Israel
+Our study on the purpose of temptation from God's point of view has now taken a different course. A course which is rarely seen as a threat. These warnings were issued to the children of Israel but they are just as real to the Christians of Today.
+
+#### The Great Apostasy
+> "Now the Spirit expressly says that in latter times some will depart from the faith, giving heed to deceiving spirits and doctrines of demons, 2 speaking lies in hypocrisy, having their own conscience seared with a hot iron,"
+(1 Timothy 4:1, 2 NKJV)
 
 Define:
  - prophet
@@ -51,12 +57,12 @@ When we do not love God with all our heart and with all our soul there will be g
 - the core of our being must be wholly devoted to God 
 
 ### The Need for Discernment
+God has given every Christian the gift of discernment. 
 The whole point of discernment is to be able to distinguish between what's true and what's false. This takes training. In the field of science, computers are trained by being exposed to thousands of scenarios that forces them to make a decision. In this way they learn to remember how to make better decisions next time and how to spot incorrect patterns.
 
-
-
 ## Prayers - Falsities 
-1. Holy Father, let every situation we find ourselves in be a lesson
+1. Holy Father, let every situation we find ourselves in be a lesson to train our hearts and souls to love and obey You.
+2. Spirit of Truth, fortify our hearts with the truth of Your Word so that we may stand strong on an evil day
 
 ### Notable Topics
  - Depravity of False Teachers (2 Peter 2:12-17)
