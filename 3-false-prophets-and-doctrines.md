@@ -19,24 +19,24 @@
 
 # Learning Objectives
 
-i. examine why God allowed false prophets and false doctrines  
+ i. examine why God allowed false prophets and false doctrines  
  ii. explore why God allowed some heathen nations to stay in the Promised Land
 
 # False Prophets and Doctrines
 
-> **1** “If there arises among you a prophet or a dreamer of dreams, and he gives you a sign or a wonder,   
-> **2** and the sign or the wonder comes to pass, of which he spoke to you, saying, ‘_Let us go after other gods_’—which you have not known—‘and let us serve them,’   
+> **1** “If there arises among you a prophet or a dreamer of dreams, and he gives you a sign or a wonder,  
+> **2** and the sign or the wonder comes to pass, of which he spoke to you, saying, ‘_Let us go after other gods_’—which you have not known—‘and let us serve them,’  
 > **3** you shall not listen to the words of that prophet or that dreamer of dreams, _for the Lord **your God is testing you** to know whether you love the Lord your God with all your heart and with all your soul._"  
 > \(Deuteronomy 13:1-3, NKJV\)
 
 ## Introduction
 
-Our study on the purpose of temptation from God's point of view has now taken a different course. A course which is rarely seen as a threat. These warnings were issued to the children of Israel but they are just as real to the Christians of Today.   
+Our study on the purpose of temptation from God's point of view has now taken a different course. A course which is rarely seen as a threat. These warnings were issued to the children of Israel but they are just as real to the Christians of Today.  
 The ten commandments were given through Moses, the man of God, to the children of Israel in Exodus 20. God knows all to well that there's a difference between having a law and keeping it.
 
 The children of Israel were tested because they made a promise to obey\(Exodus 19:8\) God's law given to them by God through Moses.
 
-> "Then all the people answered together and said, "All that the LORD has spoken we will do." So Moses brought back the words of the people to the LORD."   
+> "Then all the people answered together and said, "All that the LORD has spoken we will do." So Moses brought back the words of the people to the LORD."  
 > \(Exodus 19:8 NKJV\)
 
 The book of Deuteronomy is about the recapitulation of the ten commandments that was given to the children of Israel through their wilderness journey. Deuteronomy means the second giving of the law.
@@ -65,8 +65,10 @@ Define:
   * the source of the divine flow can be either good or bad
 
 * sign
+
   * thesaurus: _omen_, _signal_, _evidence_
   * predictions
+
 * wonder
   * a supernatural occurrence i.e. a miracle
 * gods
@@ -83,13 +85,13 @@ Qu. 1\) What makes a prophet false?
 Qu. 2\) What makes a doctrine false?
 
 * teachings designed to deny the truth of God's word
-  > "Then the serpent said to the woman, "_You will not surely die_.""   
+  > "Then the serpent said to the woman, "_You will not surely die_.""  
   > \(Genesis 3:4 NKJV\)
 
 We can expect tests from things that will take away our service to God. This is a test. The most simple of these being our attitude to attending the place of worship when the weather is cold. Do we use the weather as an excuse to stay at home and watch our favourite TV programme or do you brave the cold as true soldiers of faith?  
 Finding excuses are easy since there are so many of them. False prophets are permitted to operate by God. If a half-hearted is looking for a word to soothe an accusing conscience he or she will find one in the mouth of a false prophet. You will enter temptation the minute you swallow up the lie. You may have relief momentarily from the chaos of conscience but soon enough your loyalty will become divided. This is no different to the scene in the garden.
 
-> "Adam was not deceived, but the woman _being deceived_, fell into transgression."   
+> "Adam was not deceived, but the woman _being deceived_, fell into transgression."  
 > \(1 Timothy 2:14 NKJV\)
 
 Notes
@@ -114,11 +116,11 @@ The children of Israel were tested so that they may learn that there is only one
 
 define "monotheism"
 
-* the belief of teaching that there is one all-powerful God who created the world
+* the belief or teaching that there is one all-powerful God who created the world
 
 ### The Need for Discernment
 
-God has given every Christian the gift of discernment.   
+God has given every Christian the gift of discernment.  
 The whole point of discernment is to be able to distinguish between what's true and what's false. This takes training. In the field of science, computers are trained by being exposed to thousands of scenarios that forces them to make a decision. In this way they learn to remember how to make better decisions next time and how to spot incorrect patterns.
 
 Although, the predictions made by the prophet may come to pass the gift of discernment can go beyond the surface and dig out the real source of the power at work. Discernment can decipher between good and evil.
@@ -128,14 +130,14 @@ Although, the predictions made by the prophet may come to pass the gift of disce
 
 # Heathen Nations in the Promised Land
 
-> "**20** Then the anger of the Lord was hot against Israel; and He said, “Because this nation has transgressed My covenant which I commanded their fathers, and has not heeded My voice,   
-> **21** I also will no longer drive out before them any of the nations which Joshua left when he died,   
+> "**20** Then the anger of the Lord was hot against Israel; and He said, “Because this nation has transgressed My covenant which I commanded their fathers, and has not heeded My voice,  
+> **21** I also will no longer drive out before them any of the nations which Joshua left when he died,  
 > **22** **so that through them I may test Israel**, _whether they will keep the ways of the Lord_, to walk in them as their fathers kept them, or not.”  
 > \(Judges 2:20-22 NKJV\)
 
 #### Why God allowed some heathen nations to stay in the Promised Land?
 
-i. So that the LORD will test whether the children of Israel of will _the ways of the Lord_.
+i. So that the LORD will test whether the children of Israel of obedience will _the ways of the Lord_.
 
 * the ways of the Lord
   * this refers to the law of God
@@ -155,7 +157,8 @@ i. So that the LORD will test whether the children of Israel of will _the ways o
 ### Notable Topics
 
 * Depravity of False Teachers \(2 Peter 2:12-17\)
-* The Deception of the L diast Hour \(1 John 2:18-23\)
+* The Deception of the Last Hour \(1 John 2:18-23\)
+* Shemah \(Deuteronomy 6:4-6\)
 
 
 
