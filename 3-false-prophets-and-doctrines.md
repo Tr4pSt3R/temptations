@@ -19,11 +19,25 @@
  ii. explore why God allowed some heathen nations to stay in the Promised Land
 
 # False Prophets and Doctrines
-> **1** “If there arises among you a prophet or a dreamer of dreams, and he gives you a sign or a wonder, **2** and the sign or the wonder comes to pass, of which he spoke to you, saying, ‘Let us go after other gods’—which you have not known—‘and let us serve them,’ **3** you shall not listen to the words of that prophet or that dreamer of dreams, _for the Lord **your God is testing you** to know whether you love the Lord your God with all your heart and with all your soul._"
+> **1** “If there arises among you a prophet or a dreamer of dreams, and he gives you a sign or a wonder, **2** and the sign or the wonder comes to pass, of which he spoke to you, saying, ‘_Let us go after other gods_’—which you have not known—‘and let us serve them,’ **3** you shall not listen to the words of that prophet or that dreamer of dreams, _for the Lord **your God is testing you** to know whether you love the Lord your God with all your heart and with all your soul._"
 (Deuteronomy 13:1-3, NKJV)
 
 ## Introduction
 Our study on the purpose of temptation from God's point of view has now taken a different course. A course which is rarely seen as a threat. These warnings were issued to the children of Israel
+
+Define:
+ - prophet
+ - dreamer of dreams
+ - sign
+ - wonder
+ - gods
+
+Qu. 1) What makes a prophet false?
+Qu. 2) What makes a doctrine false?
+ - designed to deny the truth of God's word (Gen. 3:4)
+
+We can expect tests from things that will take away our service to God. This is a test. The most simple of these being our attitude to attending the place of worship when the weather is cold. Do we use the weather as an excuse to stay at home and watch our favourite TV programme or do you brave the cold as true soldiers of faith?
+Finding excuses are easy since there are so many of them. 
 
 Notes
  - the anointing teaches you all things
