@@ -41,7 +41,13 @@ Our study on the purpose of temptation from God's point of view has now taken a 
 
 Define:
  - prophet
+   - ordained to speak God's word
+     > **5** Before I formed you in the womb I knew you; Before you were born I sanctified you; I ordained you a prophet to the nations.”
+     **9** Then the Lord put forth His hand and touched my mouth, and the Lord said to me:“Behold, I have put My words in your mouth."
+
  - dreamer of dreams
+  - dreams are channels for divine revelation
+  - the source of the divine flow can be either good or bad
  - sign
  - wonder
  - gods
@@ -58,7 +64,7 @@ Qu. 2) What makes a doctrine false?
  - designed to deny the truth of God's word (Gen. 3:4)
 
 We can expect tests from things that will take away our service to God. This is a test. The most simple of these being our attitude to attending the place of worship when the weather is cold. Do we use the weather as an excuse to stay at home and watch our favourite TV programme or do you brave the cold as true soldiers of faith?
-Finding excuses are easy since there are so many of them. 
+Finding excuses are easy since there are so many of them. False prophets are permitted to operate by God. 
 
 Notes
  - the anointing teaches you all things
@@ -78,6 +84,9 @@ The whole point of discernment is to be able to distinguish between what's true 
 Although, the predictions made by the prophet may come to pass the gift of discernment can go beyond the surface and dig out the real source of the power at work. Discernment can decipher between good and evil.
 >"But solid food belongs to those who are of full age, that is, those who by reason of use have their senses _exercised to discern both good and evil_."
 (Hebrews 5:14 NKJV)
+
+## Summary
+1. God is battling for our hearts and souls.
 
 ## Prayers - Falsities 
 1. Holy Father, let every situation we find ourselves in be a lesson to train our hearts and souls to love and obey You.
