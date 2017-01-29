@@ -1,17 +1,10 @@
-Book: Studies for Christian Growth - Solid Foundations
-
+**Book**: Studies for Christian Growth - Solid Foundations
 **Study 5**: Temptation
-
-**Topic**: The Purpose of Temptation - The Children of Israel Tested
-
-**Date**: Sun. 22nd Jan. 2017
-
+**Topic**: The Purpose of Temptation - False Prophets and Doctrines
+**Date**: Sun. 29th Jan. 2017
 **Teacher**: Brother Jones Agyemang
-
 **Support**: Minister Philip Amponsah
-
 **Class**: Judah
-
 **Contents**:
 
 * Learning objectives
@@ -29,7 +22,7 @@ Book: Studies for Christian Growth - Solid Foundations
 
 ## Introduction
 Notes
- - the anointing teaches you all things.
+ - the anointing teaches you all things
  - you have no need that anyone should teach you
  - will you put God first?
  - 
