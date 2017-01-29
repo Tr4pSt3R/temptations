@@ -31,6 +31,11 @@ Notes
  - will you put God first?
  - even if what they say comes to pass it's still to be classified as a lying wonder and a lying sign!
 
+When we do not love God with all our heart and with all our soul there will be gaps for the enemy to exploit/attack!
+- this will present severe challenges in the Christian's faith
+- a house divided cannot stand, this is also the case with the heart.
+- the core of our being must be wholly devoted to God 
+
 ### The Need for Discernment
 The whole point of discernment is to be able to distinguish between what's true and what's false. This takes training. In the field of science, computers are trained by being exposed to thousands of scenarios that forces them to make a decision. In this way they learn to remember how to make better decisions next time and how to spot incorrect patterns.
 
