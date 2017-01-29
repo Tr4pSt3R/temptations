@@ -1,17 +1,10 @@
-Book: Studies for Christian Growth - Solid Foundations
-
+**Book**: Studies for Christian Growth - Solid Foundations
 **Study 5**: Temptation
-
 **Topic**: The Purpose of Temptation - Abraham's Faith Confirmed
-
 **Date**: Sun. 15th Jan. 2017 
-
 **Teacher**: Brother Jones Agyemang
-
 **Support**: Minister Philip Amponsah
-
 **Class**: Judah
-
 **Contents**:
   - Learning objectives
   - The Purpose of Temptation - From God’s Point of View
