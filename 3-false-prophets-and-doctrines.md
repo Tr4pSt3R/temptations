@@ -42,6 +42,10 @@ The book of Deuteronomy is about the recapitulation of the ten commandments that
 (1 Timothy 4:1, 2 NKJV)
 
 Define:
+ - doctrine
+  - > a belief or set of beliefs held and taught by a Church, political party, or other group: 
+  
+  - > "of the doctrine of _baptisms_, of _laying on of hands_, of _resurrection of the dead_, and of _eternal judgment_." (Hebrews 6:2 NKJV)
  - prophet
    - ordained to speak God's word
      > **5** Before I formed you in the womb I knew you; Before you were born I sanctified you; I ordained you a prophet to the nations.”
@@ -51,7 +55,7 @@ Define:
   - dreams are channels for divine revelation
   - the source of the divine flow can be either good or bad
  - sign
-  - thesaurus: _omen_, _signal_, _evidence_, 
+  - thesaurus: _omen_, _signal_, _evidence_
   - predictions
  - wonder
   - a supernatural occurrence i.e. a miracle
@@ -127,6 +131,7 @@ i. So that the LORD will test whether the children of Israel of will _the ways o
 
 ### Notable Topics
  - Depravity of False Teachers (2 Peter 2:12-17)
+ - The Deception of the L diast Hour (1 John 2:18-23)
 
 
 
