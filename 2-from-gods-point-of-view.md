@@ -1,17 +1,10 @@
-Book: Studies for Christian Growth - Solid Foundations
-
+**Book**: Studies for Christian Growth - Solid Foundations
 **Study 5**: Temptation
-
 **Topic**: The Purpose of Temptation - The Children of Israel Tested
-
 **Date**: Sun. 22nd Jan. 2017
-
 **Teacher**: Brother Jones Agyemang
-
 **Support**: Minister Philip Amponsah
-
 **Class**: Judah
-
 **Contents**:
 
 * Learning objectives
