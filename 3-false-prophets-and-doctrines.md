@@ -29,42 +29,42 @@
 ## Introduction
 Our study on the purpose of temptation from God's point of view has now taken a different course. A course which is rarely seen as a threat. These warnings were issued to the children of Israel but they are just as real to the Christians of Today.
 
-
-
-
-
-
-
 #### The Great Apostasy
-> "Now the Spirit expressly says that in latter times some will depart from the faith, giving heed to deceiving spirits and doctrines of demons, 2 speaking lies in hypocrisy, having their own conscience seared with a hot iron,"
+> "Now the Spirit expressly says that in latter times **some will depart from the faith**, giving heed to deceiving spirits and doctrines of demons, 2 speaking lies in hypocrisy, having their own conscience seared with a hot iron,"
 (1 Timothy 4:1, 2 NKJV)
 
 Define:
  - prophet
    - ordained to speak God's word
      > **5** Before I formed you in the womb I knew you; Before you were born I sanctified you; I ordained you a prophet to the nations.”
-     **9** Then the Lord put forth His hand and touched my mouth, and the Lord said to me:“Behold, I have put My words in your mouth."
+     **9** Then the Lord put forth His hand and touched my mouth, and the Lord said to me: “_Behold, I have put My words in your mouth_."
 
  - dreamer of dreams
   - dreams are channels for divine revelation
   - the source of the divine flow can be either good or bad
  - sign
+  - thesaurus: _omen_, _signal_, _evidence_, 
+  - predictions
  - wonder
+  - a supernatural occurrence i.e. a miracle
  - gods
 
 Qu. 1) What makes a prophet false?
  - a prophet who is **not** sent by God 
-  - ""
+  > "I have **not** sent these prophets, yet they ran. I have not spoken to them, yet they prophesied." (Jeremiah 23:21 NKJV)
  - a prophet who does **not** live according to the law of God
   >"For both prophet and priest are profane; yes, in my house I have found their wickedness," says the LORD" (Jeremiah 23:11 NKJV)
- - a prophet whose predictions do **not** come from God
+ - a prophet whose predictions do **not** come from God even if they come to pass
   >"And I have seen folly in the prophets of Samaria: _they prophesied by Baal_ and caused My people Israel to err." (Jeremiah 23:13 NKJV)
  
 Qu. 2) What makes a doctrine false?
  - designed to deny the truth of God's word (Gen. 3:4)
 
 We can expect tests from things that will take away our service to God. This is a test. The most simple of these being our attitude to attending the place of worship when the weather is cold. Do we use the weather as an excuse to stay at home and watch our favourite TV programme or do you brave the cold as true soldiers of faith?
-Finding excuses are easy since there are so many of them. False prophets are permitted to operate by God. 
+Finding excuses are easy since there are so many of them. False prophets are permitted to operate by God. If a half-hearted is looking for a word to soothe an accusing conscience he or she will find one in the mouth of a false prophet. You will enter temptation the minute you swallow up the lie. You may have relief momentarily from the chaos of conscience but soon enough your loyalty will become divided. This is no different to the scene in the garden. 
+
+> "Adam was not deceived, but the woman _being deceived_, fell into transgression." 
+(1 Timothy 2:14 NKJV)
 
 Notes
  - the anointing teaches you all things
