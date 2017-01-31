@@ -19,7 +19,7 @@
 
 # Learning Objectives
 
- i. examine why God allowed false prophets and false doctrines  
+i. examine why God allowed false prophets and false doctrines  
  ii. explore why God allowed some heathen nations to stay in the Promised Land
 
 # False Prophets and Doctrines
@@ -70,7 +70,9 @@ Define:
   * predictions
 
 * wonder
+
   * a supernatural occurrence i.e. a miracle
+
 * gods
 
 Qu. 1\) What makes a prophet false?
