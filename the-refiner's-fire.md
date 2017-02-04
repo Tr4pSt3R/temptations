@@ -1,6 +1,6 @@
 **Book**: Studies for Christian Growth - Solid Foundations  
 **Study 5**: Temptation  
-**Topic**: The Purpose of Temptation - False Prophets and Doctrines  
+**Topic**: The Purpose of Temptation - The Refiner's Finer  
 **Date**: Sun.5th Feb. 2017  
 **Teacher**: Brother Jones Agyemang  
 **Support**: Brother Kweku Dadzie  
@@ -57,7 +57,7 @@ In these situations we are usually confronted with choices which will either pro
 
 ## Peace for the Refined
 
-God's peace is the reward for successfully passing through the processing in the furnace of affliction. 
+God's peace is the reward for successfully passing through the processing in the furnace of affliction.
 
 > "Oh, that you had heeded my commandments! Then your **peace** _would have been like a river_, and your righteousness like the waves of the sea."
 >
@@ -69,12 +69,15 @@ God's peace is the reward for successfully passing through the processing in the
 >
 > 1 Peter 1:6, 7 NKJV
 
-It's unusual to contemplate that 
+It's unusual to contemplate that
 
 ## Prayers - Refining - Tues. 31st Jan. 2017
 
 1. I declare that I am the work of Your hands, O Father and Maker of all things, both visible and invisible.
 2. Lord Jesus, we stand to win the crown of life if we stand firm in faith until the very end. In this we ask for Your divine aid to assure our hearts and keep the reward of the **Crown of Life** in view.
+3. Lord, sit as a Refiner and purge us of our dross that we may continually bring to You an offering of righteousness.
+   > "He will sit as a refiner and a purifier of silver; He will purify the sons of Levi, and **purge** them as gold and silver, that they may offer to the Lord an offering in righteousness."  
+   > Malachi 3:3 NKJV
 
 
 
