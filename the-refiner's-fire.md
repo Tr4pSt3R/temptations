@@ -107,14 +107,21 @@ In these situations we are usually confronted with choices which will either pro
  _And I will not give my glory to another_."  
  Isaiah 48:11 NKJV
 
-Examples of a Furnace.
+### Examples of a Furnace
 
 * Egypt
-* Philistines
-* Babylonians
+* Babylonian
+* even Jerusalem!
 
-## Israel in the Furnace
+The LORD is determined to purge us of the impurities of our heart. It doesn't matter whether we change jobs, church, supermarket, friends, girlfriend/boyfriend, husband/wife, etc. **The Father will continue the process until we are in the image of Christ.
+** We cannot be legitimately called His children if we do not permit Him to have any involvement in our upbringing.
+
+> "But **if you are without chastening**, of which all have become partakers, then you are illegitimate and not sons." 
+Hebrews 12:8 NKJV
+
+### Israel in the Furnace
 READ: Ezekiel 22:17-22
+  - the Lord said this of Israel, nonetheless, it is just as applicable to Christians of Today
 
 ## Peace for the Refined
 
@@ -130,8 +137,8 @@ God's peace is the reward for successfully passing through the processing in the
 
 ## Summary
 1. The furnace of affliction are orchestrated by God.
-2. We may go through the furnace as ordinance by God.
-3. We may go through the furnace as a persecution of our faith in Christ.
+2. The refining process is God-ordained.
+3. No matter where we go, **The Father will continue the process of refining until we are in the image of Christ.**
 
 ## Prayers - Refining - Tues. 31st Jan. 2017
 
