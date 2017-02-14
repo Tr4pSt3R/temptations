@@ -7,14 +7,17 @@
 **Class**: Judah  
 **Contents**:
 
+* Memory Verse
 * Learning objectives
 * The Refiner's Fire
 * * Introduction
   * Refined as Silver
   * The Furnace of Affliction
 
-"_Blessed is the man who endures temptation; **for when he has been approved**, he will receive the crown of life which the Lord has promised to those who love Him_."  
-James 1:12 NKJV
+# Memory Verse
+
+> "_Blessed is the man who endures temptation; **for when he has been approved**, he will receive the crown of life which the Lord has promised to those who love Him_."  
+> James 1:12 NKJV
 
 # Learning Objectives
 
@@ -116,7 +119,7 @@ In these situations we are usually confronted with choices which will either pro
 * Babylonian
 * even Jerusalem!
 
-The LORD is determined to purge us of the impurities of our heart. It doesn't matter whether we change jobs, church, supermarket, friends, girlfriend/boyfriend, husband/wife, etc. **The Father will continue the process until we are in the image of Christ.    
+The LORD is determined to purge us of the impurities of our heart. It doesn't matter whether we change jobs, church, supermarket, friends, girlfriend/boyfriend, husband/wife, etc. **The Father will continue the process until we are in the image of Christ.      
 ** We cannot be legitimately called His children if we do not permit Him to have any involvement in our upbringing.
 
 > "But **if you are without chastening**, of which all have become partakers, then you are illegitimate and not sons."  
