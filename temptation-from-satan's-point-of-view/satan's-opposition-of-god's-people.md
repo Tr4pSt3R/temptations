@@ -60,6 +60,29 @@ Early Christians usually faced imprisonment for their faith in Christ.
 
 Suffering has its roots in the Latin word _sufferre._ It's a conjunction of two words: _sub-_ **"from below"**_ \_and \_ferre_ **"to bear"**. The word suffering can be transliterated as _**load-bearing**_**.**
 
+## The Desires of the Flesh
+
+Satan tempts the saints of God to satisfy natural desires in the wrong way. 
+
+> "**1** Then Jesus was led up by the Spirit into the wilderness to be tempted by the devil. **2** And when He had fasted forty days and forty nights, afterward _He was hungry_. **3** Now when the tempter came to Him, he said, “If You are the Son of God, **command that these stones become bread**.” **4** But He answered and said, “It is written, ‘Man shall not live by bread alone, but by every word that proceeds from the mouth of God.’ ”  
+> Matthew 4:1-4 NKJV
+
+In this passage, Satan is denoted as "_the devil_" and "_the tempter_"_._
+
+Jesus, being fully man yet fully God, felt the pangs of hunger. He required spiritual nourishment to sustain Him. Food solves the sufferings incurred by hunger. 
+
+Question: Why would it have been wrong for Jesus to do what Satan suggested he should do?
+
+* Jesus would have been using His own powers rather than relying on God. 
+  > "Now when the tempter came to Him, he said, “If You are the Son of God, **command that these stones become bread**.”  
+  > Matthew 4:3
+
+  * _Question_: Why is it wrong to rely on ourselves rather than God?
+
+  * The saints of God are largely sustained by God's provision. 
+  * The spiritual life of the saint of God is maintained/sustained by God's word. 
+* Jesus would have been adjudged to be putting God to the test. 
+
 # Prayer - Adversity - Thurs. 23rd Feb. 2017
 
 1. Father, give relief to the burdened. 
