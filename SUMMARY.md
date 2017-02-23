@@ -9,5 +9,5 @@
   * [The Refiner's Fire](the-refiner's-fire.md)
   * [Reaction and Reward](the-purpose-of-the-refiner's-fire.md)
 * [Temptation - From Satan's Point of View](temptation-from-satan's-point-of-view.md)
-  * Satan's Opposition of God's People
+  * [The Real Adversary](temptation-from-satan's-point-of-view/satan's-opposition-of-god's-people.md)
 
