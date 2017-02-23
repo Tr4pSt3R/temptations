@@ -10,4 +10,6 @@
   * [Reaction and Reward](the-purpose-of-the-refiner's-fire.md)
 * [Temptation - From Satan's Point of View](temptation-from-satan's-point-of-view.md)
   * [The Real Adversary](temptation-from-satan's-point-of-view/satan's-opposition-of-god's-people.md)
+* [How Temptation Works](how-temptation-works.md)
+  * [Principle of the Four Ps](how-temptation-works/principle-of-the-four-ps.md)
 
