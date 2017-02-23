@@ -44,7 +44,7 @@ Questions:
 1. Who is Satan? 
 2. Why is he/she/it so opposed to God's people
 
-+ spiritual warfare is the reality in the life of every born-again Christian
+3. spiritual warfare is the reality in the life of every born-again Christian
 
 
 
