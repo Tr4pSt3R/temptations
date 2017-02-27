@@ -36,28 +36,28 @@ Through temptation what we lack in ability, might, strength, faith and the fruit
 
 # The Promise
 
-The **Promise** is a '_rhema_' \(a personal, quickened word of God\). It may come through the Bible, a sermon, a prophecy, God speaking to our hearts, etc. 
+The **Promise** is a '_rhema_' \(a personal, quickened word of God\). It may come through the Bible, a sermon, a prophecy, God speaking to our hearts, etc.
 
 # The Principle
 
-God may make a specific condition when He gives us the promise, but often what He requires of us is faith and patience. 
+God may make a specific condition when He gives us the promise, but often what He requires of us is faith and patience.
 
 > "that you do not become sluggish, but imitate those _**who through faith and patience inherit the promises**_."  
 > Hebrews 6:12 NKJV
 
 # The Problem
 
-What God has promised may seem to be an impossible _test of faith_. God may delay giving us what He has promised. This is a _test of patience_. 
+What God has promised may seem to be an impossible _test of faith_. God may delay giving us what He has promised. This is a _test of patience_.
 
 # The Provision
 
-God fulfils the promise if we will keep believing and wait for His timing. 
+God fulfils the promise if we will keep believing and wait for His timing.
 
 # Example of Temptation: Noah
 
 ### Promise
 
-> "**17** And behold, I Myself am bringing floodwaters on the earth, to destroy from under heaven all flesh in which is the breath of life; everything that is on the earth shall die.   
+> "**17** And behold, I Myself am bringing floodwaters on the earth, to destroy from under heaven all flesh in which is the breath of life; everything that is on the earth shall die.  
 > **18** But **I will establish My covenant with you**\(Gen. 9:9-17\); and you shall go into the ark—you, your sons, your wife, and your sons’ wives with you."  
 > Genesis 6:17-18 NKJV
 
