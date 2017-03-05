@@ -41,7 +41,7 @@ God sets the limits of the trials Satan brings. As we mature in the Christian li
 > "No temptation has overtaken you except such as is common to man; but **God is faithful**, who _will not allow you to be tempted beyond what you are able\(dunamai\)_, but with the temptation will also make the way of escape, _that you may be able to bear it._"  
 > 1 Corinthians 10:13 NKJV
 
-The limits are set at the saint's ability\(might, power, strength\) to bear the temptation. The measure of the limit is based on God's evaluation as man's evaluation of himself is either inflated by pride or deflated by lack of confidence. 
+The limits are set at the saint's ability\(might, power, strength\) to bear the temptation. The measure of the limit is based on God's evaluation as man's evaluation of himself is either inflated by pride or deflated by lack of confidence.
 
 ## Etymology of Suffering
 
@@ -94,21 +94,23 @@ Question: Why would it have been wrong for Jesus to do what Satan suggested he s
 
 * Jesus would have been adjudged to be putting God to the test.
 
-# Painting a False Picture
+# Painting A False Picture
 
 Satan tempts through painting a false picture of what God is like.
 
-> "**1** Now the serpent was more cunning than any beast of the field which the Lord God had made. And he said to the woman, “Has God indeed said, ‘You shall not eat of every tree of the garden’?”
->
-> **2** And the woman said to the serpent, “We may eat the fruit of the trees of the garden;
->
-> **3** but of the fruit of the tree which is in the midst of the garden, God has said, ‘You shall not eat it, nor shall you touch it, lest you die.’ ”
->
-> **4** Then the serpent said to the woman, “You will not surely die. **5** For God knows that in the day you eat of it your eyes will be opened, and you will be like God, knowing good and evil.”
+> "**1** Now the serpent\(Satan\) was more cunning\(subtle, skilled in deceit\) than any beast of the field which the Lord God had made. And he said to the woman, “_Has God indeed said, ‘You shall not eat of every tree of the garden’?” _**2** And the woman\(Eve\) said to the serpent, “We may eat the fruit of the trees of the garden; **3** but of the fruit of the tree which is in the midst of the garden, God has said, ‘You shall not eat it, nor shall you touch it, lest you die.’ ”**4** Then the serpent said to the woman, “You will not surely die. **5** For God knows that in the day you eat of it your eyes will be opened, and you will be like God, knowing good and evil.”  
+> Genesis 3:1-5 NKJV
+
+In order to paint a false picture about a person there are key areas that usually comes under attack. These areas include the person under attack's character, motives, intelligence, emotional state and authority. Satan attacked God's character by expressing God as a power-hungry control freak. God in the mind of Eve appeared to be a domineering and tyrannical figure. Satan has continued to use this tactic successfully in God's people. Apostle Paul in writing to the Corinthian church warns them of this very issue.
+
+> "But I fear, lest somehow, as the serpent deceived Eve by his craftiness, so your minds may be corrupted from the simplicity that is in Christ."  
+> 2 Corinthians 11:3 NKJV
+
+Satan tempts us through suffering. In other words, he creates a situation where we are torn between contradicting desires; the desire to obey God or desire to disobey God's commandment. This becomes an unbearable suffering if we have developed a desire for the object of temptation. How should we react to restrictions put in place by God's commandments? These commandments are boundaries never to crossed. What happens when we step out of the safety of God's commandments? We enter into temptation when we enter into negotiations with the serpent. The moment Eve replied with "God said..."\(Gen. 3:2,3\) the enemy took every opportunity to exploit the gaps in her knowledge. Eve's incorrect recall of the direct commandment invited Satan to act as a subject matter expert who will provide the missing picture. Although, the bulk of God's commands was left intact the small infusion made by Satan was an exceptionally toxic poison. A small yeast that marred the whole dough. We've entered into temptation when negotiation alternative means of satisfying our desires. We enter temptation when we consider the benefit of fulfilling the desire. We've entered into temptation when we calculate how much we can get away with. We've entered into temptation when God is the least of our concerns; the fear of God vanishes \(Rom. 3:8\). 
 
 **Question**:
 
-* What apparently good things did Satan tell Eve that was stopping her from enjoying?
+* What apparently good things did Satan tell Eve that God was stopping her from enjoying?
 * What things may Satan be trying to convince us that God is stopping us from enjoying? 
 * Have you been given a wrong impression of who God is? 
 * How did you feel or react when you came to understand and know the true God for yourself?
@@ -119,7 +121,8 @@ Our reaction to temptation determines whether temptation works for our good or f
 
 **Questions**:
 
-* From the study so far, pick out the three main benefits that we gain when we come through temptation victoriously.
+* From the study so far, pick out the three main benefits that we gain when we come through temptation victoriously.  
+  i. the crown of life
 
 * If a man does yield to temptation and sin, what wages does he earn?
 
