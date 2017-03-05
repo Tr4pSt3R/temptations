@@ -94,6 +94,10 @@ Question: Why would it have been wrong for Jesus to do what Satan suggested he s
 
 * Jesus would have been adjudged to be putting God to the test.
 
+**READ: John 6:22-40**
+
+* Do not **labour **for perishable food \(John 6:26-27\)
+
 # Painting A False Picture
 
 Satan tempts through painting a false picture of what God is like.
@@ -106,7 +110,9 @@ In order to paint a false picture about a person there are key areas that usuall
 > "But I fear, lest somehow, as the serpent deceived Eve by his craftiness, so your minds may be corrupted from the simplicity that is in Christ."  
 > 2 Corinthians 11:3 NKJV
 
-Satan tempts us through suffering. In other words, he creates a situation where we are torn between contradicting desires; the desire to obey God or desire to disobey God's commandment. This becomes an unbearable suffering if we have developed a desire for the object of temptation. How should we react to restrictions put in place by God's commandments? These commandments are boundaries never to crossed. What happens when we step out of the safety of God's commandments? We enter into temptation when we enter into negotiations with the serpent. The moment Eve replied with "God said..."\(Gen. 3:2,3\) the enemy took every opportunity to exploit the gaps in her knowledge. Eve's incorrect recall of the direct commandment invited Satan to act as a subject matter expert who will provide the missing picture. Although, the bulk of God's commands was left intact the small infusion made by Satan was an exceptionally toxic poison. A small yeast that marred the whole dough. We've entered into temptation when negotiation alternative means of satisfying our desires. We enter temptation when we consider the benefit of fulfilling the desire. We've entered into temptation when we calculate how much we can get away with. We've entered into temptation when God is the least of our concerns; the fear of God vanishes \(Rom. 3:8\). 
+Satan tempts us through suffering. For example, when sickness invades the body what should be our first reaction? Do we pray for healing? Do we go to the elders so that they may lay hands on us? Do you know that in-between the manifestation of the promises of God temptations through Satan can be introduced. 
+
+In other words, he creates a situation where we are torn between contradicting desires; the desire to obey God or desire to disobey God's commandment. This becomes an unbearable suffering if we have developed a desire for the object of temptation. How should we react to restrictions put in place by God's commandments? These commandments are boundaries never to crossed. What happens when we step out of the safety of God's commandments? We enter into temptation when we enter into negotiations with the serpent. The moment Eve replied with "God said..."\(Gen. 3:2,3\) the enemy took every opportunity to exploit the gaps in her knowledge. Eve's incorrect recall of the direct commandment invited Satan to act as a subject matter expert who will provide the missing picture. Although, the bulk of God's commands was left intact the small infusion made by Satan was an exceptionally toxic poison. A small yeast that marred the whole dough. We've entered into temptation when negotiation alternative means of satisfying our desires. We enter temptation when we consider the benefit of fulfilling the desire. We've entered into temptation when we calculate how much we can get away with. We've entered into temptation when God is the least of our concerns; the fear of God vanishes \(Rom. 3:8\).
 
 **Question**:
 
@@ -114,6 +120,8 @@ Satan tempts us through suffering. In other words, he creates a situation where 
 * What things may Satan be trying to convince us that God is stopping us from enjoying? 
 * Have you been given a wrong impression of who God is? 
 * How did you feel or react when you came to understand and know the true God for yourself?
+
+Satan was saying God is good. 
 
 # Reaction and Reward
 
