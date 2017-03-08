@@ -109,9 +109,11 @@ Satan tempts through painting a false picture of what God is like.
 **Pause and Think:**
 
 * What things may Satan be trying to convince us, in our everyday lives, that God is stopping us from enjoying?
-  * Satan at an opportune time will appeal to our natural desires with the purpose of exploiting one of our many vulnerabilities in spiritually underdeveloped areas. It is an error to presumptiously consider ourselves to be perfect, complete and mature when fiery trials have not established the genuineness of our faith\(1 Pet. 1:6,7\). It is helpful to **pause and reflect** and allow the Spirit of God to search where our weakness\(1 Cor. 12:5\) lies. Eve took the _bait_ of Satan's wiles when her mind was placed under the false impression that God will not punish sin - "_Then the serpent said to the woman, "**You will not surely die."**_**"**\(Genesis 3:4\). God forewarned that "_of the tree of the knowledge of good and evil you shall not eat for in the day you eat of it you shall surely die._"\(Genesis 2:17\). By negating the stern warning of God, Satan placed Eve under a false impression of God. Satan painted God as a weak-willed and fickle deity. 
 
-  * the whole world is swept into this deception. The fear of God is lost when man is placed under the conviction that there is neither Heaven nor Hell.
+  * Satan at an opportune time will appeal to our natural desires with the purpose of exploiting one of our many vulnerabilities in spiritually underdeveloped areas. It is an error to presumptiously consider ourselves to be perfect, complete and mature when fiery trials have not established the genuineness of our faith\(1 Pet. 1:6,7\). It is helpful to **pause and reflect** and allow the Spirit of God to search where our weakness\(1 Cor. 12:5\) lies. Eve took the _bait_ of Satan's wiles when her mind was placed under the false impression that God will not punish sin - "_Then the serpent said to the woman, "**You will not surely die."**_**"**\(Genesis 3:4\). God forewarned that "_of the tree of the knowledge of good and evil you shall not eat for in the day you eat of it you shall surely die._"\(Genesis 2:17\). By negating the stern warning of God, Satan placed Eve under a false impression of God. Satan painted God as a weak-willed and fickle deity.
+
+  * the whole world is swept into this deception. The fear of God is lost when man is placed under the conviction that there is neither Heaven nor Hell. Cults disseminate these "_doctrine of demons_"\(1 Tim. 4:1\). 
+
 * Have you been given a wrong impression of who God is? 
 * How did you feel or react when you came to understand and know the true God for yourself?
 
