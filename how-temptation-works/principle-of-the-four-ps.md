@@ -63,6 +63,8 @@ God fulfils the promise if we will keep believing and wait for His timing.
 
 Question: What was God's promise to Noah?
 
+* God promised to **establish His covenant** with Noah
+
 ### Principle
 
 > "Make yourself an ark of gopherwood; make rooms in the ark, and cover it inside and outside with pitch."  
@@ -70,10 +72,31 @@ Question: What was God's promise to Noah?
 
 Question: What was Noah commanded to do?
 
+* Noah made an ark of gopherwood
+
 ### Problem
 
 > "By faith Noah, being divinely warned of things not yet seen, moved with godly fear, prepared an ark for the saving of his household, by which he condemned the world and became heir of the righteousness which is according to faith."  
 > Hebrews 11:7 NKJV
+
+How was Noah's faith tested?
+
+* **Noah had confidence in God and His word**. Every promise we receive from God will undergo this test; do you have confidence in God and His word? If our spirit, actions, choices, obedience and prayers does not meaningfully express our faith in God and His word of promise we will never receive of God's promise. 
+  > "And whatever things you ask in prayer, believing, you will receive.”  
+  > Matthew 21:22 NKJV
+* Noah believed in the divine warning without seeking for physical evidence to quicken him to action. This is the very definition of faith - "_the substance of things hoped for, the evidence of things not seen_."\(Heb. 11:1\). **Noah did not seek physical sign and wonders to quicken him to action.**
+* Noah had no immediate concern over where he was going to source the raw materials for such a large construction. It's unthinkable to imagine how a nomadic, tent-dwelling people group could embark on ship-building. **Noah had to something that's never been done before**.
+
+### The Provision
+
+God fulfills the promise if we will keep believing and wait for His timing.
+
+> "**1 **So **God blessed Noah and his sons**, and said to them: “Be fruitful and multiply, and fill the earth. **9** And as for Me, behold, **I establish My covenant with you and with your descendants after you**,"  
+> Genesis 9:1, 9 NKJV
+
+What did God give Noah?
+
+* God gave Noah an **eternal covenant**
 
 
 
