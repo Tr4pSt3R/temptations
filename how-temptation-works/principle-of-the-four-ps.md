@@ -1,7 +1,7 @@
 **Book**: Studies for Christian Growth - Solid Foundations  
 **Study 5**: Temptation  
 **Topic**: Temptation - From Satan's Point of View  
-**Date**: Sun. 5th March 2017  
+**Date**: Sun. 18th March 2017  
 **Teacher**: Brother Jones Agyemang  
 **Support**: Brother Kweku Dadzie  
 **Class**: Judah
@@ -10,11 +10,7 @@
 
 * Memory Verse
 * Learning Objectives
-* The Principle of the Four Ps
-* The Promise
-* The Principle
-* The Problem
-* The Provision
+* Example of Temptation: Noah
 
 # Memory Verse
 
@@ -22,36 +18,6 @@
 > James 1:12 NKJV
 
 # Learning Objectives
-
-# How Temptation Works
-
-* God gives us a **PROMISE**
-* which has with a **PRINCIPLE** \(or condition we must fulfil
-* and follows this by a **PROBLEM** to test/tempt us. 
-* and then comes God's **PROVISION** \(if we stay faithful during the problem\)
-
-Many of us don't have what it takes to stand in faith. To fight until the victory is assured. To pray until the promise is procured. To strive until the race is won. To praise until the garment of heaviness is lifted. To live in purity. To abstain from the accursed materials.
-
-Through temptation what we lack in ability, might, strength, faith and the fruits of the Spirit is gradually introduced to us. This is, by no means, the exhaustive list of the benefits of temptation. The manifold wisdom of God measures just what we can bear. This means every test is a stepping stone the next level of our faith. Thus, temptation provides a suitable occasion for gauging our ability, might, power, strength and faith. When we stand firm in the test our strength is made clear to us. We become convinced of the power of God in our possession. When we fail in the test our lack of strength is made apparent to ourselves.
-
-# The Promise
-
-The **Promise** is a '_rhema_' \(a personal, quickened word of God\). It may come through the Bible, a sermon, a prophecy, God speaking to our hearts, etc.
-
-# The Principle
-
-God may make a specific condition when He gives us the promise, but often what He requires of us is faith and patience.
-
-> "that you do not become sluggish, but imitate those _**who through faith and patience inherit the promises**_."  
-> Hebrews 6:12 NKJV
-
-# The Problem
-
-What God has promised may seem to be an impossible _test of faith_. God may delay giving us what He has promised. This is a _test of patience_.
-
-# The Provision
-
-God fulfils the promise if we will keep believing and wait for His timing.
 
 # Example of Temptation: Noah
 
@@ -85,18 +51,45 @@ How was Noah's faith tested?
   > "And whatever things you ask in prayer, believing, you will receive.”  
   > Matthew 21:22 NKJV
 * Noah believed in the divine warning without seeking for physical evidence to quicken him to action. This is the very definition of faith - "_the substance of things hoped for, the evidence of things not seen_."\(Heb. 11:1\). **Noah did not seek physical sign and wonders to quicken him to action.**
-* Noah had no immediate concern over where he was going to source the raw materials for such a large construction. It's unthinkable to imagine how a nomadic, tent-dwelling people group could embark on ship-building. **Noah had to something that's never been done before**.
+* Noah had no immediate concern over where he was going to source the raw materials for such a large construction. It's unthinkable to imagine how a nomadic, tent-dwelling people group could embark on ship-building. **Noah had to something that's never been done before **employing skills he's probably never used before. 
 
 ### The Provision
 
 God fulfills the promise if we will keep believing and wait for His timing.
 
-> "**1 **So **God blessed Noah and his sons**, and said to them: “Be fruitful and multiply, and fill the earth. **9** And as for Me, behold, **I establish My covenant with you and with your descendants after you**,"  
+> "**1 **So **God blessed\(empowered/authorised\) Noah and his sons**, and said to them: “Be fruitful and multiply, and fill the earth. **9** And as for Me, behold, **I establish\(accomplish/confirm/continue/make good/raise up/\) My covenant with you and with your descendants after you**,"  
 > Genesis 9:1, 9 NKJV
 
 What did God give Noah?
 
-* God gave Noah an **eternal covenant**
+* God established\(_accomplished/confirmed/continued/made good/raised up_\) a** covenant**\(binding agreement/solemn promise\)** **with Noah; meaning a binding agreement or solemn promise. 
+* "_Be fruitful and multiply, and fill the earth_." \(v1b\) This is a second occurence of this covenant demand. It was first given to Adam and Eve in the garden of Eden. 
+* All human life perished. Every soul under the Sun was wiped out through the great flood. It was a total annihilation of all life forms on earth.
+* Noah and his family were uniquely preserved by God. 
+
+Promises:
+
+The word "promise" primarily denotes a proclamation or an announcement a gracious benefit from God. Notice how it's not something 
+
+1. Threat of flooding
+   > "I Myself am bringing floodwaters on the earth," \(Genesis 6:16a NKJV\)
+
+   * this is **damning**_ threat_ to the sinful people of Noah's generation
+   * but, a **sweet**_ promise_ to Noah and his family and all livestock which accompanied them into the ark 
+   * this is same promise that we have in Christ. 
+   * Christ is the head of the new generation who have been made heirs of righteousness through faith
+   * The perverse generation of wicked men who do whatever they want without a care for God's threats will be overtaking by the great flood of God's fiery wrath
+   * However, those of us who have ceased from working all manner of uncleaness, repented of our sins, turned our back on the perverse generation, picked up our cross and followed Jesus into the 'ark' will also receive this promise. 
+2. Threat of total annihilation of all living things on earth  
+   &gt; "to destroy from under heaven all flesh in which is the breath of life;" \(Genesis 6:16b NKJV\)  
+   - Today, I appeal to your minds to make the conscious decision to jump on the ark if you haven't done so.   
+   - Jump back into the ark and stay in the ark permanently until the overflowing sewage of wickedness and evil has been swept away. 
+
+3. I Myself am bringing floodwaters on the earth, to destroy from under heaven all flesh in which is the breath of life; everything that is on the earth shall die. **18** But **I will establish My covenant with you**\(Gen. 9:9-17\); and you shall go into the ark—you, your sons, your wife, and your sons’ wives with you."
+
+**Prayer - Sat. 11th March 2017**
+
+1. Father of all flesh and every creeping thing. You are My LORD and God. I pray that Your children will **save** themselves from this perverse, wicked and untoward generation. 
 
 
 

@@ -104,7 +104,7 @@ Satan tempts through painting a false picture of what God is like.
 **Question**:
 
 * What apparently good things did Satan tell Eve that God was stopping her from enjoying?
-  * The crafty serpent convinced Eve that God was stopping her from knowing _the difference_ between good and evil and from possessing a greater spiritual awareness\(v. 5\)
+  * The crafty\(wily\) serpent convinced Eve that God was stopping her from knowing _the difference_ between good and evil and from possessing a greater spiritual awareness\(v. 5\)
 
 **Pause and Think:**
 
@@ -112,9 +112,12 @@ Satan tempts through painting a false picture of what God is like.
 
   * Satan at an opportune time will appeal to our natural desires with the purpose of exploiting one of our many vulnerabilities in spiritually underdeveloped areas. It is an error to presumptiously consider ourselves to be perfect, complete and mature when fiery trials have not established the genuineness of our faith\(1 Pet. 1:6,7\). It is helpful to **pause and reflect** and allow the Spirit of God to search where our weakness\(1 Cor. 12:5\) lies. Eve took the _bait_ of Satan's wiles when her mind was placed under the false impression that God will not punish sin - "_Then the serpent said to the woman, "**You will not surely die."**_**"**\(Genesis 3:4\). God forewarned that "_of the tree of the knowledge of good and evil you shall not eat for in the day you eat of it you shall surely die._"\(Genesis 2:17\). By negating the stern warning of God, Satan placed Eve under a false impression of God. Satan painted God as a weak-willed and fickle deity.
 
-  * the whole world is swept into this deception. The fear of God is lost when man is placed under the conviction that there is neither Heaven nor Hell. Cults disseminate these "_doctrine of demons_"\(1 Tim. 4:1\). 
+  * the whole world is swept into this deception. The fear of God is lost when man is placed under the conviction that there is neither Heaven nor Hell. Cults disseminate these "_doctrine of demons_"\(1 Tim. 4:1\).
 
-* Have you been given a wrong impression of who God is? 
+  * Goodness is no guarantee of protection from deception. It may be good to desire to broaden the boarders of our minds through learning and following after our natural desires. Our natural desire will form the substance of our curiousity. The instructions of our natural mind must be subject to the influence of the Holy Spirit. **The guidance of the Holy Spirit is our surest protection against temptation arising from deception**.
+
+* Have you been given a wrong impression of who God is?
+
 * How did you feel or react when you came to understand and know the true God for yourself?
 
 # Reaction and Reward
@@ -123,17 +126,18 @@ Our reaction to temptation determines whether temptation works for our good or f
 
 **Questions**:
 
-* From the study so far, pick out the three main benefits that we gain when we come through temptation victoriously.
+1. From the study so far, pick out the three main benefits that we gain when we come through temptation victoriously
+   * inherit of the crown of life \(James 1:12\)
+   * the genuineness of our faith, or lack of it, is revealed or confirmed
+   * elevation in maturity 
+2. If a man does yield to temptation and sin, what wages does he earn?
+   > "For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord." Romans 6:23 NKJV
 
-* If a man does yield to temptation and sin, what wages does he earn?
-
-  > "For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord."  
-  > Romans 6:23 NKJV
-
-# Prayer - Adversity - Thurs. 23rd Feb. 2017
+# Prayer - Adversity - Sat. 11th March 2017
 
 1. Father, give relief to the burdened. 
 2. Spirit of Comfort, deliver a dose of good cheer to the spiritually challenged and mentally afflicted souls in our midst. 
+3. Holy Father pour grace upon the tongue of he who minister the words of life to Your beloved children. 
 
 
 
