@@ -1,6 +1,6 @@
 **Book**: Studies for Christian Growth - Solid Foundations  
 **Study 5**: Temptation  
-**Topic**: Temptation - From Satan's Point of View  
+**Topic**: Temptation - From Satan's Point of View: The Real Adversary  
 **Date**: Sun. 26th Feb. 2017  
 **Teacher**: Brother Jones Agyemang  
 **Support**: Brother Kweku Dadzie  
@@ -124,11 +124,14 @@ Satan tempts through painting a false picture of what God is like.
 
 Our reaction to temptation determines whether temptation works for our good or for our harm.
 
+> Blessed\(happy, spiritually prosperous, favoured by God\) is the man who endures temptation; for when he has been approved, he will receive the crown of life which the Lord has promised to those who love Him.  
+> James 1:12 NKJV
+
 **Questions**:
 
 1. From the study so far, pick out the three main benefits that we gain when we come through temptation victoriously
    * inherit of the crown of life \(James 1:12\)
-   * the genuineness of our faith, or lack of it, is revealed or confirmed
+   * the genuineness of our faith\(1 Pet. 1:6-7\)`77`\`\`\`\`\`\`\`9, or lack of it, is revealed or confirmed
    * elevation in maturity 
 2. If a man does yield to temptation and sin, what wages does he earn?
    > "For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord." Romans 6:23 NKJV

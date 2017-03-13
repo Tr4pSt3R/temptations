@@ -12,5 +12,5 @@
   * [The Real Adversary](temptation-from-satan's-point-of-view/satan's-opposition-of-god's-people.md)
 * [How Temptation Works - Principle of the Four Ps](how-temptation-works.md)
   * [Example of Temptation: Noah](how-temptation-works/principle-of-the-four-ps.md)
-  * Example of Temptation: Abraham
+  * [Example of Temptation: Abraham](how-temptation-works/example-of-temptation-abraham.md)
 

@@ -1,6 +1,6 @@
 **Book**: Studies for Christian Growth - Solid Foundations  
 **Study 5**: Temptation  
-**Topic**: Temptation - From Satan's Point of View  
+**Topic**: Example of Temptation: Noah  
 **Date**: Sun. 18th March 2017  
 **Teacher**: Brother Jones Agyemang  
 **Support**: Brother Kweku Dadzie  
@@ -69,9 +69,10 @@ What did God give Noah?
 
 Promises:
 
-The word "promise" primarily denotes a proclamation or an announcement a gracious benefit from God. Notice how it's not something 
+The word "promise" primarily denotes a proclamation or an announcement a gracious benefit from God. Notice how it's not something
 
 1. Threat of flooding
+
    > "I Myself am bringing floodwaters on the earth," \(Genesis 6:16a NKJV\)
 
    * this is **damning**_ threat_ to the sinful people of Noah's generation
@@ -80,10 +81,12 @@ The word "promise" primarily denotes a proclamation or an announcement a graciou
    * Christ is the head of the new generation who have been made heirs of righteousness through faith
    * The perverse generation of wicked men who do whatever they want without a care for God's threats will be overtaking by the great flood of God's fiery wrath
    * However, those of us who have ceased from working all manner of uncleaness, repented of our sins, turned our back on the perverse generation, picked up our cross and followed Jesus into the 'ark' will also receive this promise. 
+
 2. Threat of total annihilation of all living things on earth  
-   &gt; "to destroy from under heaven all flesh in which is the breath of life;" \(Genesis 6:16b NKJV\)  
-   - Today, I appeal to your minds to make the conscious decision to jump on the ark if you haven't done so.   
-   - Jump back into the ark and stay in the ark permanently until the overflowing sewage of wickedness and evil has been swept away. 
+   &gt; "to destroy from under heaven all flesh in which is the breath of life;" \(Genesis 6:16b NKJV\)
+
+   * Today, I appeal to your minds to make the conscious decision to jump on the ark if you haven't done so.   
+   * Jump back into the ark and stay in the ark permanently until the overflowing sewage of wickedness and evil has been swept away. 
 
 3. I Myself am bringing floodwaters on the earth, to destroy from under heaven all flesh in which is the breath of life; everything that is on the earth shall die. **18** But **I will establish My covenant with you**\(Gen. 9:9-17\); and you shall go into the ark—you, your sons, your wife, and your sons’ wives with you."
 
