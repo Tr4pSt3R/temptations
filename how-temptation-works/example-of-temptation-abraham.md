@@ -1,7 +1,7 @@
 **Book**: Studies for Christian Growth - Solid Foundations  
 **Study 5**: Temptation  
 **Topic**: Example of Temptation: Abraham  
-**Date**: Sun.  
+**Date**: -  
 **Teacher**: Brother Jones Agyemang  
 **Support**: Brother Kweku Dadzie  
 **Class**: Judah
@@ -19,7 +19,6 @@
 
 # Learning Objectives
 
-* 
 # Example of Temptation: Abraham
 
 ## Introduction
