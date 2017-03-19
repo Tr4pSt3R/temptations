@@ -114,7 +114,7 @@ Satan tempts through painting a false picture of what God is like.
 
   * the whole world is swept into this deception. The fear of God is lost when man is placed under the conviction that there is neither Heaven nor Hell. Cults disseminate these "_doctrine of demons_"\(1 Tim. 4:1\).
 
-  * Goodness is no guarantee of protection from deception. It may be good to desire to broaden the boarders of our minds through learning and following after our natural desires. Our natural desire will form the substance of our curiousity. The instructions of our natural mind must be subject to the influence of the Holy Spirit. **The guidance of the Holy Spirit is our surest protection against temptation arising from deception**.
+  * Goodness is no guarantee of protection from deception. It may be good to have a desire to broaden the boarders of our minds through learning by following our curiousity. The instructions of our natural mind must be subject to the influence of the Holy Spirit. **The guidance of the Holy Spirit is our surest protection against temptation arising from deception**.
 
 * Have you been given a wrong impression of who God is?
 
@@ -124,23 +124,105 @@ Satan tempts through painting a false picture of what God is like.
 
 Our reaction to temptation determines whether temptation works for our good or for our harm.
 
-> Blessed\(happy, spiritually prosperous, favoured by God\) is the man who endures temptation; for when he has been approved, he will receive the crown of life which the Lord has promised to those who love Him.  
+> Blessed\(happy, spiritually prosperous, favoured by God\) is the man who endures temptation\(trials, persecution\); for when he has been approved, he will receive the crown of life which the Lord has promised to those who\(continue to\) love Him.  
 > James 1:12 NKJV
+
+In the preceding studies we defined temptation as "_**a strong urge, seduction or desire that leads to sin**_." 
+
+In James 1:12, the Apostle James opens this verse on a positive note. It is clear that the Apostle is more interested in emphasizing the good that springs up from extraordinarily difficult situations and challenges in our Christian walk. As Christians in an ungodly world: we are walking against the general direction of the crowd\(Matt. 7:13-14\); we are rigrously abstaining from every appearance of evil\(1 Thessalonians 5:22\); and the encouragement to be willing-partakers of sinful activities\(Proverbs 1:10\). See you efforts in walking, fleeing, running
+
+## Define Reaction
+
+> Something thought, felt, or done in response to a situation or event.
+
+Reaction to temptation is first provoked in our thoughts[^1]. In a tempting situation, a stream of thoughts comes into our mind. In itself they are not sinful. Nonetheless, our reaction to these thoughts will have a big say in what happens at the end. 
+
+Actions can burst out without much deliberate thought. In criminal justice the concept of _pre-meditated murder_[^2] recognises that some actions are produced as a result of deliberate planning whilst, some actions are either accidental or committed without much pre-meditation. 
+
+**Thoughts** comes from the mind. **Feelings** comes from the soul. **Actions** comes from the body. 
+
+Therefore when we speak of reaction to temptation we mean the thoughts, feelings and actions that are produced as a result of facing temptations. 
+
+Firstly, we recognise temptation in its forms as enticement to fulfill a natural desire, seduction to immoral behaviour, sinful urges rising from within, invitations to transgression, subtle persuasion to overstep the mark of God's commandment, etc.   
+Secondly, we account for temptation in its form as imprisonment \(Rev. 2:10\), persecution, trials and tribulations. 
+
+## Negative Reactions to Temptation
+
+Negative reactions to temptation increases the likelihood of commiting an evil act. The word "reactions" is pluralised owing to the fact that the wiles of the enemy is often projected more than once. The enemy hounded Jesus for forty days and forty nights during the Saviour's fasting in the wilderness. Every day had its troubles -- "_sufficient for today is its own troubles_"\(Matt. 6:34b\). For this reason believers are exhorted to resist him until he flees\(James 4:7\). 
+
+Negative reactions comprises of wrong thoughts, unhealthy feelings and foolish actions.   
+Thoughts hold information. Information feeds into our decision. 
+
+## Positive Reactions to Temptations
+
+Positive reactions to temptations increases the possibility of success. Success could mean passing the test God has set. It could also mean loving God under the trial. It could also mean overcoming the wiles of the enemy. We are blessed when we allow God, in His Fatherhood, to discipline us as His children. Our positive reaction to God's rebuke _yields the peaceful fruit of righteousness_.
+
+> "Now no chastening seems to be joyful for the present, but painful; nevertheless, afterward it yields the peaceable fruit of righteousness to those who have been trained by it."  
+> Hebrews 12:11 NKVJ
+
+Positive reaction to temptation involves:
+
+i. submission to the authority of God
+
+* the express commandment of God must be the enforcer of our obedience
+* Eve failed to submit to the authority of God -- _for_ in God's word lies His authority.
+
+ii. abstaining from every appearance of evil
+
+* means of abstinence: 
+  * fleeing
+    > "Flee also youthful lusts;"   
+    > 2 Timothy 2:22a NKJV
+  * praying
+    > "Watch and **pray**, lest you enter into temptation. The spirit indeed is willing, but the flesh is weak.”   
+    > Matthew 26:41 NKJV
+  * thanksgiving
+    > "Be anxious for nothing, but in everything by prayer and supplication, with **thanksgiving**, let your requests be made known to God;"  
+    > Philippians 4:6 NKJV
+  * Meditation 
+
+  * > "Finally, brethren, whatever things are true, whatever things are noble, whatever things are just, whatever things are pure, whatever things are lovely, whatever things are of good report, if there is any virtue and if there is anything praiseworthy—**meditate** on these things."   
+    > Philippians 4:8 NKJV
+  * resist
+
+  * > "Therefore submit to God. **Resist**\(_stand firm against_\) the devil and he will flee from you."   
+    > James 4:7 NKJV
+
+Holy Scriptures teaches that using these means of reacting will guarantee a successful outcome in the midst of temptation. Lets make use of them in our everyday lives. 
 
 **Questions**:
 
-1. From the study so far, pick out the three main benefits that we gain when we come through temptation victoriously
+1. From the study so far, these are the three main benefits that we gain when we go through temptation victoriously.
    * inherit of the crown of life \(James 1:12\)
-   * the genuineness of our faith\(1 Pet. 1:6-7\)`77`\`\`\`\`\`\`\`9, or lack of it, is revealed or confirmed
+   * the genuineness of our faith\(1 Pet. 1:6-7\), or lack of it, is revealed or confirmed
    * elevation in maturity 
 2. If a man does yield to temptation and sin, what wages does he earn?
    > "For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord." Romans 6:23 NKJV
 
-# Prayer - Adversity - Sat. 11th March 2017
+# Summary
+
+1. We must consistently look for opportunities to **flee** from situations that will lead to sin. 
+
+2. Flee. Pray. Give thanks. Resist. 
+
+# Prayer - Adversity - Sat. 18th March 2017
 
 1. Father, give relief to the burdened. 
 2. Spirit of Comfort, deliver a dose of good cheer to the spiritually challenged and mentally afflicted souls in our midst. 
 3. Holy Father pour grace upon the tongue of he who minister the words of life to Your beloved children. 
+4. Father, Your children have said "goodbye!" to the world let their gaze be fixed Christ-ward now and forever more. 
+5. Lord grant us the grace to continue loving You in temptation, persecution, trials, imprisonment and suffering.
+   * grace for impatient fathers to train mischievous children \(Mal. 4:6; Eph. 6:4\)
+   * grace for cold-hearted husbands to love their wives \(Eph. 5:28\)
+   * grace for the disconsolate widow \(Luke 2:37\)
+   * grace for the discomforted widower \(Ezekiel 
+   * grace for preachers to proclaim the Gospel in the midst of a perverse and crooked generation
+   * grace for young men and women to resist the urges of sexual temptations \(2 Timothy 2:22\)
+   * grace for habitual liars to bridle their tongue \(James 3:6\)
 
 
+
+[^1]: "Thus says the Lord God: ‘On that day it shall come to pass that _thoughts will arise in your mind_, and you will make an evil plan:" Ezekiel 38:10 
+
+[^2]: "And this is the case of the manslayer who flees there, that he may live: _Whoever kills his neighbor unintentionally_, not having hated him in time past." Deuteronomy 19:4
 
