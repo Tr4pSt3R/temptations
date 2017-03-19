@@ -129,7 +129,7 @@ Our reaction to temptation determines whether temptation works for our good or f
 
 In the preceding studies we defined temptation as "_**a strong urge, seduction or desire that leads to sin**_."
 
-In James 1:12, the Apostle James opens this verse on a positive note. It is clear that the Apostle is more interested in emphasizing the good that springs up from extraordinarily difficult situations and challenges in our Christian walk. As Christians in an ungodly world: we are walking against the general direction of the crowd\(Matt. 7:13-14\); we are rigrously abstaining from every appearance of evil\(1 Thessalonians 5:22\); and the encouragement to be willing-partakers of sinful activities\(Proverbs 1:10\). See you efforts in walking, fleeing, running
+In James 1:12, the Apostle James opens this verse on a positive note. It is clear that the Apostle is more interested in emphasizing the good that springs up from extraordinarily difficult situations and challenges in our Christian walk. As Christians in an ungodly world: we are walking against the general direction of the crowd\(Matt. 7:13-14\); we are rigrously abstaining from every appearance of evil\(1 Thessalonians 5:22\); and the encouragement to be willing-partakers of sinful activities\(Proverbs 1:10\). Be diligent in your efforts in walking, fleeing, running, meditation and rejection.
 
 ## Define Reaction
 
@@ -150,7 +150,7 @@ Secondly, we account for temptation in its form as imprisonment \(Rev. 2:10\), p
 
 Negative reactions to temptation increases the likelihood of commiting an evil act. The word "reactions" is pluralised owing to the fact that the wiles of the enemy is often projected more than once. The enemy hounded Jesus for forty days and forty nights during the Saviour's fasting in the wilderness. Every day had its troubles -- "_sufficient for today is its own troubles_"\(Matt. 6:34b\). For this reason believers are exhorted to resist him until he flees\(James 4:7\).
 
-Negative reactions comprises of wrong thoughts, unhealthy feelings and foolish actions.  
+Negative reactions are made up of wrong thoughts, unhealthy feelings and foolish actions.  
 Thoughts hold information. Information feeds into our decision.
 
 ## Positive Reactions to Temptations
@@ -196,7 +196,7 @@ Holy Scriptures teaches that using these means of reacting will guarantee a succ
 1. From the study so far, these are the three main benefits that we gain when we go through temptation victoriously.
    * inherit of the crown of life \(James 1:12\)
    * the genuineness of our faith\(1 Pet. 1:6-7\), or lack of it, is revealed or confirmed
-   * elevation in maturity 
+   * elevation in maturity James 1:3, 4
 2. If a man does yield to temptation and sin, what wages does he earn?
    > "For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord." Romans 6:23 NKJV
 
