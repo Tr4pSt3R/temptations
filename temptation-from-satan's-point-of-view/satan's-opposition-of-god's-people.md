@@ -127,7 +127,7 @@ Our reaction to temptation determines whether temptation works for our good or f
 > Blessed\(happy, spiritually prosperous, favoured by God\) is the man who endures temptation\(trials, persecution\); for when he has been approved, he will receive the crown of life which the Lord has promised to those who\(continue to\) love Him.  
 > James 1:12 NKJV
 
-In the preceding studies we defined temptation as "_**a strong urge, seduction or desire that leads to sin**_." 
+In the preceding studies we defined temptation as "_**a strong urge, seduction or desire that leads to sin**_."
 
 In James 1:12, the Apostle James opens this verse on a positive note. It is clear that the Apostle is more interested in emphasizing the good that springs up from extraordinarily difficult situations and challenges in our Christian walk. As Christians in an ungodly world: we are walking against the general direction of the crowd\(Matt. 7:13-14\); we are rigrously abstaining from every appearance of evil\(1 Thessalonians 5:22\); and the encouragement to be willing-partakers of sinful activities\(Proverbs 1:10\). See you efforts in walking, fleeing, running
 
@@ -135,23 +135,23 @@ In James 1:12, the Apostle James opens this verse on a positive note. It is clea
 
 > Something thought, felt, or done in response to a situation or event.
 
-Reaction to temptation is first provoked in our thoughts[^1]. In a tempting situation, a stream of thoughts comes into our mind. In itself they are not sinful. Nonetheless, our reaction to these thoughts will have a big say in what happens at the end. 
+Reaction to temptation is first provoked in our thoughts[^1]. In a tempting situation, a stream of thoughts comes into our mind. In itself they are not sinful. Nonetheless, our reaction to these thoughts will have a big say in what happens at the end.
 
-Actions can burst out without much deliberate thought. In criminal justice the concept of _pre-meditated murder_[^2] recognises that some actions are produced as a result of deliberate planning whilst, some actions are either accidental or committed without much pre-meditation. 
+Actions can burst out without much deliberate thought. In criminal justice the concept of _pre-meditated murder_[^2] recognises that some actions are produced as a result of deliberate planning whilst, some actions are either accidental or committed without much pre-meditation.
 
-**Thoughts** comes from the mind. **Feelings** comes from the soul. **Actions** comes from the body. 
+**Thoughts** comes from the mind. **Feelings** comes from the soul. **Actions** comes from the body.
 
-Therefore when we speak of reaction to temptation we mean the thoughts, feelings and actions that are produced as a result of facing temptations. 
+Therefore when we speak of reaction to temptation we mean the thoughts, feelings and actions that are produced as a result of facing temptations.
 
-Firstly, we recognise temptation in its forms as enticement to fulfill a natural desire, seduction to immoral behaviour, sinful urges rising from within, invitations to transgression, subtle persuasion to overstep the mark of God's commandment, etc.   
-Secondly, we account for temptation in its form as imprisonment \(Rev. 2:10\), persecution, trials and tribulations. 
+Firstly, we recognise temptation in its forms as enticement to fulfill a natural desire, seduction to immoral behaviour, sinful urges rising from within, invitations to transgression, subtle persuasion to overstep the mark of God's commandment, etc.  
+Secondly, we account for temptation in its form as imprisonment \(Rev. 2:10\), persecution, trials and tribulations.
 
 ## Negative Reactions to Temptation
 
-Negative reactions to temptation increases the likelihood of commiting an evil act. The word "reactions" is pluralised owing to the fact that the wiles of the enemy is often projected more than once. The enemy hounded Jesus for forty days and forty nights during the Saviour's fasting in the wilderness. Every day had its troubles -- "_sufficient for today is its own troubles_"\(Matt. 6:34b\). For this reason believers are exhorted to resist him until he flees\(James 4:7\). 
+Negative reactions to temptation increases the likelihood of commiting an evil act. The word "reactions" is pluralised owing to the fact that the wiles of the enemy is often projected more than once. The enemy hounded Jesus for forty days and forty nights during the Saviour's fasting in the wilderness. Every day had its troubles -- "_sufficient for today is its own troubles_"\(Matt. 6:34b\). For this reason believers are exhorted to resist him until he flees\(James 4:7\).
 
-Negative reactions comprises of wrong thoughts, unhealthy feelings and foolish actions.   
-Thoughts hold information. Information feeds into our decision. 
+Negative reactions comprises of wrong thoughts, unhealthy feelings and foolish actions.  
+Thoughts hold information. Information feeds into our decision.
 
 ## Positive Reactions to Temptations
 
@@ -169,26 +169,27 @@ i. submission to the authority of God
 
 ii. abstaining from every appearance of evil
 
-* means of abstinence: 
+* means of abstinence:
+
   * fleeing
-    > "Flee also youthful lusts;"   
+    > "Flee also youthful lusts;"  
     > 2 Timothy 2:22a NKJV
   * praying
-    > "Watch and **pray**, lest you enter into temptation. The spirit indeed is willing, but the flesh is weak.”   
+    > "Watch and **pray**, lest you enter into temptation. The spirit indeed is willing, but the flesh is weak.”  
     > Matthew 26:41 NKJV
   * thanksgiving
     > "Be anxious for nothing, but in everything by prayer and supplication, with **thanksgiving**, let your requests be made known to God;"  
     > Philippians 4:6 NKJV
-  * Meditation 
+  * Meditation
 
-  * > "Finally, brethren, whatever things are true, whatever things are noble, whatever things are just, whatever things are pure, whatever things are lovely, whatever things are of good report, if there is any virtue and if there is anything praiseworthy—**meditate** on these things."   
+  * > "Finally, brethren, whatever things are true, whatever things are noble, whatever things are just, whatever things are pure, whatever things are lovely, whatever things are of good report, if there is any virtue and if there is anything praiseworthy—**meditate** on these things."  
     > Philippians 4:8 NKJV
   * resist
 
-  * > "Therefore submit to God. **Resist**\(_stand firm against_\) the devil and he will flee from you."   
+  * > "Therefore submit to God. **Resist**\(_stand firm against_\) the devil and he will flee from you."  
     > James 4:7 NKJV
 
-Holy Scriptures teaches that using these means of reacting will guarantee a successful outcome in the midst of temptation. Lets make use of them in our everyday lives. 
+Holy Scriptures teaches that using these means of reacting will guarantee a successful outcome in the midst of temptation. Lets make use of them in our everyday lives.
 
 **Questions**:
 
@@ -201,9 +202,9 @@ Holy Scriptures teaches that using these means of reacting will guarantee a succ
 
 # Summary
 
-1. We must consistently look for opportunities to **flee** from situations that will lead to sin. 
+1. We must consistently look for opportunities to **flee** from situations that will lead to sin.
 
-2. Flee. Pray. Give thanks. Resist. 
+2. Flee. Pray. Give thanks. Resist.
 
 # Prayer - Adversity - Sat. 18th March 2017
 
@@ -215,12 +216,10 @@ Holy Scriptures teaches that using these means of reacting will guarantee a succ
    * grace for impatient fathers to train mischievous children \(Mal. 4:6; Eph. 6:4\)
    * grace for cold-hearted husbands to love their wives \(Eph. 5:28\)
    * grace for the disconsolate widow \(Luke 2:37\)
-   * grace for the discomforted widower \(Ezekiel 
-   * grace for preachers to proclaim the Gospel in the midst of a perverse and crooked generation
+   * grace for the discomforted widower \(Ezekiel 24:18\)
+   * grace for preachers to proclaim the Gospel in the midst of a perverse and crooked generation \(Acts 2:40\)
    * grace for young men and women to resist the urges of sexual temptations \(2 Timothy 2:22\)
    * grace for habitual liars to bridle their tongue \(James 3:6\)
-
-
 
 [^1]: "Thus says the Lord God: ‘On that day it shall come to pass that _thoughts will arise in your mind_, and you will make an evil plan:" Ezekiel 38:10 
 
