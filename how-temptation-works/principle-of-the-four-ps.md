@@ -48,9 +48,9 @@ Question: What was Noah commanded to do?
 How was Noah's faith tested?
 
 * **Noah had confidence in God and His word**. Every promise we receive from God will undergo this test; do you have confidence in God and His word? If our spirit, actions, choices, obedience and prayers does not meaningfully express our faith in God and His word of promise we will never receive of God's promise. 
-  > "And whatever things you ask in prayer, believing, you will receive.”  
+  > "And whatever things you ask in prayer, **believing**, _you will receive_.”  
   > Matthew 21:22 NKJV
-* Noah believed in the divine warning without seeking for physical evidence to quicken him to action. This is the very definition of faith - "_the substance of things hoped for, the evidence of things not seen_."\(Heb. 11:1\). **Noah did not seek physical sign and wonders to quicken him to action.**
+* Noah believed in the divine warning without seeking for physical evidence to quicken him to action. This is the very definition of faith - "_the substance of things hoped for, the evidence of things not seen_."\(Heb. 11:1\). **Noah did not seek physical sign and wonders to quicken him to action.** Let's emulate this example of faith by believing God even when we haven't seen
 * Noah had no immediate concern over where he was going to source the raw materials for such a large construction. It's unthinkable to imagine how a nomadic, tent-dwelling people group could embark on ship-building. **Noah had to something that's never been done before **employing skills he's probably never used before. 
 
 ### The Provision
@@ -75,7 +75,7 @@ The word "promise" primarily denotes a proclamation or an announcement a graciou
 
    > "I Myself am bringing floodwaters on the earth," \(Genesis 6:16a NKJV\)
 
-   * this is **damning**_ threat_ to the sinful people of Noah's generation
+   * this is a **damning**_ threat_ to the sinful people of Noah's generation
    * but, a **sweet**_ promise_ to Noah and his family and all livestock which accompanied them into the ark 
    * this is same promise that we have in Christ. 
    * Christ is the head of the new generation who have been made heirs of righteousness through faith
