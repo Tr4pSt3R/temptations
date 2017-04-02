@@ -78,7 +78,7 @@ Define "provision"
 | Adam and Eve, _Genesis 2, 3_ | Fellowship with God in the garden of Eden | Obedience to God's command | Satanic temptation | Failed |
 | Abraham, _Genesis 12-22_ | Father of nations | Faith and obedience | Years of waiting, laps in problem | "Father of the Faith" |
 | Isaac, _Genesis 25_ | Promised a son | Willingness and obedience | Twenty years childless; Deception; Injustice | Birth of Jacob and Esau; Rachel as bride |
-| Jacob, _Genesis 29_ | Dream of greatness | Faith and obedience | sold in slavery; jail and suffering | Rescued his people from famine |
+| Jacob6, _Genesis 29_ | Dream of greatness | Faith and obedience | sold in slavery; jail and suffering | Rescued his people from famine |
 | Moses, _Exodus 2-14_ | to deliver the Hebrews | Faith and obedience | Kills Egyptian; years in exile | Delivers his people from Egypt |
 | Israel, _Exo., Lev., Num., Deut._ | the Promised Land | willingness and obedience | Forty years in wilderness | first generation failed |
 | Job, _Job 1-42_ | perfection of faith | Trust and obedience | spiritual and physical testing | faith, abundant restoration |
@@ -94,7 +94,7 @@ Define "provision"
 | Paul, _Philippians _ | Apostle of Jesus Christ | faith, obedience and humility | persecution, beatings, prison, suffering | prize of his high calling in Christ \(_Phil. 3:14\)_ |
 | Timothy, _1 and 2 Timothy_ | usefulness in God's work | faith, diligence, obedience | spiritual warfare, false teachers, shyness | strength and boldness, full of provision |
 | Christian life, _Galatians 2:20_ | freedom from bondage | Christ in us | Dying to self | Resurrection life |
-| Believers, _Romans 5-8_ | Reign in life_, Romans 5_ | Dead to self, risen with Christ \(Romans 6\) | Conflict between old and new nature \(_Romans 7_\) | The promised land \(_Romans 8\). _Life lived completely in the Spirit of God. |
+| Believers, _Romans 5-8_ | Reign in life_, Romans 5_ | Dead to self, risen with Christ \(Romans 6\) | Conflict between old and new nature \(_Romans 7_\) | The promised land \(\_Romans 8\). \_Life lived completely in the Spirit of God. |
 
 # 
 
@@ -105,11 +105,11 @@ Define "provision"
 * standing in the **problem**
 * entering the **provision**
 
-2. When it comes to the promises of God the only way to obtain the provision is to trust and obey. It's really true that there is no other way but to _**trust and obey**_!
+* When it comes to the promises of God the only way to obtain the provision is to trust and obey. It's really true that there is no other way but to _**trust and obey**_!
 
-3. No one whose hope is in God will ever be put to shame. 
+* No one whose hope is in God will ever be put to shame.
 
-4. If we count our wilderness experience as pleasurable and necessary our Christian experience will allow us to account for every difficulty as joyful. "Count it all joy!"
+* If we count our wilderness experience as pleasurable and necessary our Christian experience will allow us to account for every difficulty as joyful. "Count it all joy!"
 
 # Prayer
 
