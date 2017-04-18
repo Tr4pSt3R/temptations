@@ -14,4 +14,5 @@
   * [Example of Temptation: Noah](how-temptation-works/principle-of-the-four-ps.md)
   * [Example of Temptation: Abraham](how-temptation-works/example-of-temptation-abraham.md)
   * [Example of Temptation: Believers](how-temptation-works/example-of-temptation-believers.md)
+* [Coping with Temptation](coping-with-temptation.md)
 

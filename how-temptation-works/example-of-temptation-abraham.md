@@ -1,10 +1,4 @@
-**Book**: Studies for Christian Growth - Solid Foundations  
-**Study 5**: Temptation  
-**Topic**: Example of Temptation: Abraham  
-**Date**: Sun. 16th April 2017  
-**Teacher**: Brother Jones Agyemang  
-**Support**: Sister Karen Boadu  
-**Class**: Judah
+* [ ] **Book**: Studies for Christian Growth - Solid Foundations **Study 5**: Temptation **Topic**: Example of Temptation: Abraham **Date**: Sun. 16th April 2017 **Teacher**: Brother Jones Agyemang **Support**: Sister Karen Boadu **Class**: Judah
 
 # **Contents**
 
