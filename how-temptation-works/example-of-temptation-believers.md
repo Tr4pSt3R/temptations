@@ -19,7 +19,9 @@
 
 # Learning Objectives
 
-* # Example of Temptation: Believers
+
+
+# Example of Temptation: Believers
 
 ## Promise
 
@@ -36,7 +38,7 @@ Nevertheless, the tyrannical rulership of death will end! The good news is that 
 
 #### What is Grace?
 
-Grace _kharis, _the divine influence upon the heart., and its reflection in our life.
+Grace \_kharis, \_the divine influence upon the heart., and its reflection in our life.
 
 > "For the grace of God that brings salvation has appeared to all men,"  
 > Titus 2:11 NKJV
@@ -88,7 +90,7 @@ Romans 7:18, 22 NKJV
 > Romans 8:37 NKJV
 
 Through Adam we lived as captives/slaves of sin.  
-Through Christ Jesus we are captives over sin. 
+Through Christ Jesus we are captives over sin.
 
 ## Summary
 
