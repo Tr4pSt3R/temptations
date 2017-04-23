@@ -25,12 +25,21 @@
 
 The promise of God to all believers is that we won't be ruled by death, but we will _reign in life through the One, Jesus Christ._
 
-> "For if by the one\(Adam\) man's offense death reigned through the one\(Adam\), much more those who receive abundance of grace and of the \(_free_\) gift of righteousness will _reign in life _\[_**eternal**_\]_ through the One, Jesus Christ_."  
+> "For if by the one\(Adam\) man's offense\(_lapse, deviation, willful transgression, fall, fault, sin, trespass_\) death reigned through the one\(Adam\), much more those who receive abundance of grace and of the \(_free_\) gift of righteousness will _reign in life _\[_**eternal**_\]_ through the One, Jesus Christ_."  
 > Romans 5:17 NKJV
 
-There are two rulers vying for the kingdom of our every human heart. The natural man has no choice in the matter. Death is the true king of the heart of the natural\(_unbelieving_/_unregenerate_/_not born again_\) man. Death has the upper hand. The fall of the head of the human race, Adam, forfeited\(lost/gave up/surrendered\) power over death to Satan. Whilst Adam was without sin he was above death. Adam's transgression changed the order of dominion. As a direct result all his posterity\(_descendants_\) have been servants of death, dominated by sin.
+One man messed up. Another man fixed things up.
+
+There are two rulers vying for the kingdom of every human heart. The natural man has no choice in the matter. Death is the true king of the heart of the natural\(_unbelieving_/_unregenerate_/_not born again_\) man. Death has the upper hand. The fall of the head of the human race, Adam, forfeited\(lost/gave up/surrendered\) power over death to Satan. Whilst Adam was without sin he was above death. Adam's transgression changed the order of dominion. As a direct result all his posterity\(_descendants_\) have been servants of death, dominated by sin.
 
 Nevertheless, the tyrannical rulership of death will end! The good news is that the regenerate believer, by God's grace, can completely cut ties with the old king, death. This is best pictured by how the enslaved children of Israel were wonderfully rescued by the Merciful God of Jacob. This is the very heart of the promise, removing death as our ruler and enstooling Jesus Christ as Lord of our lives; throning Him as King.
+
+#### What is Grace?
+
+Grace _kharis, _the divine influence upon the heart., and its reflection in our life.
+
+> "For the grace of God that brings salvation has appeared to all men,"  
+> Titus 2:11 NKJV
 
 What does it mean to be "ruled by death"?
 
@@ -75,11 +84,22 @@ Romans 7:18, 22 NKJV
 
 # Provision
 
+> "Yet in _**all**_ these things **we are more than conquerors** through Him who loved us."  
+> Romans 8:37 NKJV
 
+Through Adam we lived as captives/slaves of sin.  
+Through Christ Jesus we are captives over sin. 
 
-Prayers
+## Summary
 
-1. Father, cleanse us of all enmity proceeding from our carnal hearts.
+1. No body can achieve the stand of God \(James 1:22-25\)
+2. The word of God is the mirror of God
+3. Christ's love makes us more than conquerors over every temptation
+
+## Prayers
+
+1. Father, cleanse us of all enmity proceeding from our carnal hearts. 
+2. Give us grace that we may walk in the newness of life
 
 
 
