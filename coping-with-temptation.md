@@ -16,8 +16,12 @@ Instead of being surprised and bewildered when trials come how should we react?
 
 > **12** Beloved, do not _think it strange_\[xenizo\] concerning the fiery trial which is to try you, as though some strange thing happened to you; **13** but rejoice to the extent that you partake of Christ's sufferings, that when His glory is revealed, you may also be glad with exceeding joy.  
 > 1 Peter 4:12-13 NKJV
-
-> Luke 17:1 \(NKJV\) 1 Then He said to the disciples, “It is impossible that no offenses should come, but woe to him through whom they do come!
+>
+> "Then He said to the disciples, “_**It is impossible that no offenses should come**_, but woe to him through whom they do come!"  
+> Luke 17:1 NKJV
+>
+> "Yes, and _**all who desire to live godly in Christ Jesus will suffer persecution**_."  
+> 2 Timothy 3:12 NKJV
 
 As Christians we should react to _persecution_ by:
 
@@ -53,17 +57,27 @@ Nothing stops us from being surprised or bewildered. This is natural. For instan
 
 > "**12** Beloved, _**do not think it strange**_ concerning the fiery trial which is to try you, as though some strange thing happened to you; **13** but rejoice to the extent that you partake of Christ's sufferings, that when His glory is revealed, you may also be glad with exceeding joy."  
 > 1 Peter 4:12-13 NKJV
-
+>
 > "If we **endure**, we shall also reign with Him. If we deny Him, He also will deny us." 2 Timothy 2:12 NKJV
-
-
 
 ### The Promises of God
 
 > "For _all the promises of God in Him are Yes_, and in Him Amen, to the glory of God through us."  
 > 2 Corinthians 1:20 NKJV
+>
+> "then _**the Lord knows how to deliver the godly out of temptations**_ and to reserve the unjust under punishment for the day of judgment,"  
+> 2 Peter 2:9 NKJV
 
+### Victory in Every Temptation
 
+> "I can do all things through _**Christ who strengthens me**_."  
+> Philippians 4:13 NKJV
+
+The voice of the Holy Spirit will always come in **quickly** to give us a reminder
+
+### Summary
+
+1. It's impossible that offence should come.
 
 
 
