@@ -79,5 +79,14 @@ The voice of the Holy Spirit will always come in **quickly** to give us a remind
 
 1. It's impossible that offence should come.
 
+## To Think About
+
+1. What tests/temptations are you going through at this moment?
+2. What are the _Promises_, _Principles _and _Provisions_ that go with these _Problems_?
+
+## Further Reading
+
+The Purpose of Temptation - Bob Mumford
+
 
 
